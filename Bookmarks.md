@@ -1,4 +1,4 @@
-## Bookmarks
+Bookmarks
 ---
 [Notebooks](file:///C:/Users/mikec/OneDrive/Notebooks) 
 
@@ -7,7 +7,6 @@ Weather
 [Wunderground 10-Day](https://www.wunderground.com/forecast/us/in/sellersburg)  
 [Wunderground Hourly](https://www.wunderground.com/hourly/us/in/sellersburg)  
 [Weather.com](https://weather.com/weather/hourbyhour/l/aae3fb852ab37c53d5fd9faa64b3e680812dac44af9d3fbc8253c9910daf1371)  
-[]()
 
 Running
 ---
@@ -63,7 +62,7 @@ Commentary
 
 Favorites
 ---
-<a href="https://outlook.live.com/"> Outlook </a>  
+[Outlook](https://outlook.live.com/]  
 [RunningAhead](https://www.runningahead.com/logs/1ce7f3a060cd47dd9597b428a2de1867)  
 [Amazon](https://smile.amazon.com/)  
 [Teams](http://teams.microsoft.com/)  
