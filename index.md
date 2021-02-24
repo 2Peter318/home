@@ -1,6 +1,3 @@
-## Hello World
-I'm hosted with GitHub Pages.
-
-[Reading List](books.md)  
-[beta](beta.md)  
-[Bookmarks](Bookmarks.md)  
+Hello World
+---
+[Reading List](books.md) | [Bookmarks](Bookmarks.md) | [Prayers](faith/index.md)
