@@ -29,7 +29,7 @@ by Pope John Paul II
 [Catechism Of The Catholic Church]() 
 Green Edition  
 
-[A Shorter Summa]()  
+[A Shorter Summa]() 
 by Peter Kreeft
 
 Holy Family
@@ -54,7 +54,7 @@ by Kathryn Spinx
 [Billy Graham: Just As I Am]() 
 by 
 
-[Paul Stanley Face The Music: A Life Exposed]()  
+[Paul Stanley Face The Music: A Life Exposed]() 
 by Paul Stanley
 
 [Unbroken: A World War II Story of Survival, Resilience, and Redemption]()
