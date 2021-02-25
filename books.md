@@ -1,13 +1,12 @@
 Faith
 ---
-Consecration to Saint Joseph, Donald Calloway  
-https://www.consecrationtostjoseph.org/
+[Consecration to Saint Joseph](https://www.consecrationtostjoseph.org/) | Donald Calloway  
 
-33 Days to Morning Glory, Reverend Michael Gaitley  
-https://www.shopmercy.org/33-days-to-morning-glory.html   
 
-The World's First Love, Archbishop Fulton Sheen  
-https://www.ignatius.com/The-Worlds-First-Love-2nd-edition-P2860.aspx  
+[33 Days to Morning Glory](https://www.shopmercy.org/33-days-to-morning-glory.html), Reverend Michael Gaitley  
+   
+[The World's First Love](https://www.ignatius.com/The-Worlds-First-Love-2nd-edition-P2860.aspx), Archbishop Fulton Sheen  
+  
 
 Business
 ---
