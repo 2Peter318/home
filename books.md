@@ -85,6 +85,9 @@ by Tony Dungy
 [Life Is Worth Living]() 
 by Fulton J. Sheen
 
+[5 Things With Father Bill](https://store.loyolapress.com/5-things-with-father-bill) 
+by William Byrne
+
 Tech
 ---
 [Teach Yourself SQL]()  
