@@ -9,6 +9,29 @@ by Michael Raynor
 [Touch Points](https://conantleadership.com/books/touchpoints/) 
 by Doug Cognant  
 
+[Thou Shalt Prosper: Ten Commandments to Making Money]() 
+by Rabbi Daniel Lapin  
+
+[Seven Triggers To Yes]() 
+by 
+
+[How To Be Exceptional]() 
+by
+
+[Uncommon Service]() 
+by Frances Frei  
+
+Faith  
+---
+[Man And Woman He Created Them: Theology Of The Body]() 
+by Pope John Paul II  
+
+[Catechism Of The Catholic Church]() 
+Green Edition  
+
+[A Shorter Summa]()  
+by Peter Kreeft
+
 Holy Family
 ---
 [Consecration to Saint Joseph](https://www.consecrationtostjoseph.org/) 
@@ -28,6 +51,15 @@ Biographies
 [Mother Teresa]() 
 by Kathryn Spinx  
 
+[Billy Graham: Just As I Am]() 
+by 
+
+[Paul Stanley Face The Music: A Life Exposed]()  
+by Paul Stanley
+
+[Unbroken: A World War II Story of Survival, Resilience, and Redemption]()
+by Laura Hillenbrand
+
 Running 
 ---
 [Meb for Mortals](https://marathonmeb.com/product/autographed-meb-for-mortals/) 
@@ -35,3 +67,25 @@ by Marathon Meb
 
 [Running Until You're 100]() 
 by Jeff Calloway  
+
+Reading List
+---
+[Dark Agenda]() 
+by Horowitz
+
+[The Virtue Driven Life]() 
+by Benedict Groeschel
+
+[Prayer Primer: Igniting A Fire Within]() 
+by Fr. Thomas Dubay  
+
+[Quiet Strength]() 
+by Tony Dungy  
+
+[Life Is Worth Living]() 
+by Fulton J. Sheen
+
+Tech
+---
+[Teach Yourself SQL]()  
+
