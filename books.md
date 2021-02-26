@@ -29,7 +29,7 @@ by Pope John Paul II
 [Catechism Of The Catholic Church]() 
 Green Edition  
 
-[A Shorter Summa]() 
+[A Shorter Summa]()
 by Peter Kreeft
 
 Holy Family
