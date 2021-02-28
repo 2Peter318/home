@@ -1,3 +1,3 @@
 Hello World
 ---
-[Reading List](books.md) | [Bookmarks](Bookmarks.md) | [Prayers](faith/index.md)
+[Reading](books.md) | [Bookmarks](bookmarks.md) | [Prayers](faith/index.md)
