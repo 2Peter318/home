@@ -1,8 +1,6 @@
-Soup and Family
+[Read](books.md) | [Pray](prayers.md) | [Watch]() | [Follow]()
 ---
-[Reading](books.md) | [Bookmarks](bookmarks.md) | [Prayers](faith/index.md)
-
-Currated News
+Curated News
 ---
 [Two Stanford Doctors Blast the Nation’s COVID Response – “Worst Public Health Mistake In Last 100 Years”](https://www.thegatewaypundit.com/2021/03/two-stanford-doctors-blast-nations-covid-response-worst-public-health-mistake-last-100-years/)  
 >March 12, 2021 - I stand behind my comment that the lockdowns are the single worst public health mistake in the last 100 years. We will be counting the catastrophic health and psychological harms, imposed on nearly every poor person on the face of the earth, for a generation.
