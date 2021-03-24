@@ -1,4 +1,7 @@
-[Read](books.md) | [Pray](prayers.md) | [Watch]() | [Follow]()
+[Read](books.md) | 
+[Pray](prayers.md) | 
+[Watch]() | 
+[Follow]()
 
 
 [Archbishop Fulton Sheen - Signs of Our Times](https://gloria.tv/post/8apV1vmiq9kEBvpUHBc7hzDg7)  
