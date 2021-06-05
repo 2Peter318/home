@@ -25,7 +25,7 @@
 |Descent Holy Spirit     |  Love of God               | Acts  2:24
 |Assumption              |  Grace happy death         | 
 |Coronation              |  Trust Mary's Intercession |
-|**Saint Joseph**
+|**Saint Joseph** (Wed)
 |Betrothal to Mary       |  Sanctity of Marriage      | Matt 1:18
 |Annuciation to Joseph   |  Prudecne & Justice        | Matt 1:19-20  
 |Birth & Naming of Jesus |  Patron of Catholic Church | Matt 1:22-25  
