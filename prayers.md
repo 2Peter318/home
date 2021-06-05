@@ -39,6 +39,9 @@ May God rebuke him, we humbly pray, and O Prince of the heavenly hosts, by the p
 thrust into hell Satan, and all the evil spirits, who prowl about the world seeking the ruin of souls.   
 Amen.
 
+**A Father's Binding Prayer For His Family**  
+Eternal Father, thank you for calling me to be the father of this family. In the name of your Son, Jesus Christ, and by the infinite power of His Precious Blood, and through the intercession of St. Joseph, I bind and cast out any evil spirits that may be in our home, or cars, or that are attacking any member of my family. I send them immediately and directly to the foot of the Cross to be judged, never to bother us again. come, Holy Spirit, and descend upon our home and fill us (name loved ones) with your light and love. In the name of the Father, and of the Son, and of the Holy Spirit. Amen.
+
 Favorite Prayers
 ---
 **Hail Holy Queen**  
@@ -99,5 +102,37 @@ Virgin Most Sorrowful, pray for us.
 
 Our Father, Hail Mary, Glory Be.
 
-**A Father's Binding Prayer For His Family**  
-Eternal Father, thank you for calling me to be the father of this family. In the name of your Son, Jesus Christ, and by the infinite power of His Precious Blood, and through the intercession of St. Joseph, I bind and cast out any evil spirits that may be in our home, or cars, or that are attacking any member of my family. I send them immediately and directly to the foot of the Cross to be judged, never to bother us again. come, Holy Spirit, and descend upon our home and fill us (name loved ones) with your light and love. In the name of the Father, and of the Son, and of the Holy Spirit. Amen.
+Latin Prayers
+---
+**Sign of the Cross**
+In nomine Patris, et Filii, et Spiritus Sancti. Amen
+
+**Our Father**  
+Pater noster, qui es in caelis,  
+sanctificetur nomen tuum.  
+Adveniat regnum tuum.  
+Fiat voluntas tua,  
+sicut in caelo et in terra.  
+Panem nostrum quotidianum da nobis hodie,  
+et dimitte nobis debita nostra sicut  
+et nos dimittimus debitoribus nostris.  
+Et ne nos inducas in tentationem,  
+sed libera nos a malo.  
+Amen.
+
+**Hail Mary**  
+Ave Maria, gratia plena, Dominus tecum.  
+Benedicta tu in mulieribus,  
+et benedictus fructus ventris tui, Iesus.  
+Sancta Maria, Mater Dei,  
+ora pro nobis peccatoribus, nunc,  
+et in hora mortis nostrae.  
+Amen.
+
+**Glory Be**  
+GLORIA PATRI, et Filio, et Spiritui Sancto.  
+Sicut erat in principio, et nunc, et semper, et in saecula saeculorum.  
+Amen.
+
+**The Fatima Prayer**  
+Domine Iesu, dimitte nobis debita nostra, salva nos ab igne inferiori, perduc in caelum omnes animas, praesertim eas, quae misericordiae tuae maxime indigent.
