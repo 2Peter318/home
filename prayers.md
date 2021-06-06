@@ -104,7 +104,7 @@ Our Father, Hail Mary, Glory Be.
 
 Latin Prayers
 ---
-**Sign of the Cross**
+**Sign of the Cross**  
 In nomine Patris, et Filii, et Spiritus Sancti. Amen
 
 **Our Father**  
