@@ -1,10 +1,10 @@
 Vaccine Ethics
 ---
 [HEK293](https://www.crisismagazine.com/2021/catholic-conscience-and-the-covid-19-vaccine)    
->The most prominent cell line, called HEK 293, comes from an abortion performed in the 1970’s. It’s labeled 293 because that’s how many experimental attempts the researchers needed to get a working cell line. Therefore, though the abortion-to-experiment ratio is not precisely one-to-one, hundreds of abortions went into the project, even if they didn’t result in the working line. 
-
+>The most prominent cell line, called HEK 293, comes from an abortion performed in the 1970’s. It’s labeled 293 because that’s how many experimental attempts the researchers needed to get a working cell line. Therefore, though the abortion-to-experiment ratio is not precisely one-to-one, **hundreds of abortions** went into the project, even if they didn’t result in the working line. 
+>
 >HEK stands for human embryonic kidney. **To harvest a viable embryonic kidney** for this purpose, sufficiently healthy children old enough to have adequately-developed kidneys must be **removed from the womb, alive, typically by cesarean section, and have their kidneys cut out**. This must take place **without anesthesia for the child**, which would lessen the viability of the organs. Instead of being held, rocked, and comforted in the time intervening between their birth and their death, they have organs cut out of them alive.
-
+>
 >There is no way that a spontaneous abortion could result in the cell line (as the kidneys cannot remain viable past the brief window in which they must be harvested) or that some brilliant researcher found a way for great good to come out of a rare tragedy by making use of a child’s body donated to science after it was aborted. The deliberate killing of an unwanted child (a little girl, in the case of HEK 293) took place in the tortuous manner it did precisely to obtain her organs for research. The harvest of her organs was the direct cause of her death, prior to which, she was a living child, outside the womb.  
 
 [USCCB Address the Use of the Johnson & Johnson Covid-19 Vaccine](https://www.usccb.org/news/2021/us-bishop-chairmen-doctrine-and-pro-life-address-use-johnson-johnson-covid-19-vaccine)  
@@ -12,14 +12,14 @@ Vaccine Ethics
 
 [USCCB Leter to FDA Urging Ethical Vaccines](https://www.usccb.org/resources/Letter-to-FDA-urging-ethical-COVID-vaccines.pdf)  
 >To be clear, we strongly support efforts to develop an effective, safe, and widely available vaccine as quickly as possible. However, we also strongly urge our federal government to ensure that fundamental moral principles are followed in the development of such vaccines, most importantly, the principle that human life is sacred and should never be exploited. 
-
+>
 >It is critically important that Americans have access to a vaccine that is produced ethically: no American should be forced to choose between being vaccinated against this potentially deadly virus and violating his or her conscience. Fortunately, there is no need to use ethically problematic cell lines to produce a COVID vaccine, or any vaccine, as other cell lines or processes that do not involve cells from abortions are available and are regularly being used to produce other vaccines.
-
+>
 [USCCB Moral Consideration of Covid Vaccines](https://www.usccb.org/moral-considerations-covid-vaccines)  
 >It is because of this respect for the human person that the USCCB, in collaboration with other organizations working to protect human life, has been engaged in a campaign advocating for the development of a vaccine for COVID-19 that has no link to abortion.
-
+>
 >there is no need to use morally compromised cell lines to produce a COVID-19 vaccine, or any vaccine. Other cell lines or processes that do not involve cells from abortions are available and are regularly being used to produce other vaccines.
-
+>
 >As for the moral responsibility of those who are merely the recipients of the vaccines, the Congregation affirms that a **serious health danger could justify** use of “a vaccine which was developed using cell lines of illicit origin, while keeping in mind that everyone has the **duty to make known their disagreement** and to ask that their healthcare system make other types of vaccines available.”
 
 [Evangelium Vitae](http://www.vatican.va/content/john-paul-ii/en/encyclicals/documents/hf_jp-ii_enc_25031995_evangelium-vitae.html)  
