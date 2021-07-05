@@ -14,7 +14,7 @@ Vaccine Ethics
 >To be clear, we strongly support efforts to develop an effective, safe, and widely available vaccine as quickly as possible. However, we also strongly urge our federal government to ensure that fundamental moral principles are followed in the development of such vaccines, most importantly, the principle that human life is sacred and should never be exploited. 
 >
 >It is critically important that Americans have access to a vaccine that is produced ethically: no American should be forced to choose between being vaccinated against this potentially deadly virus and violating his or her conscience. Fortunately, there is no need to use ethically problematic cell lines to produce a COVID vaccine, or any vaccine, as other cell lines or processes that do not involve cells from abortions are available and are regularly being used to produce other vaccines.
->
+
 [USCCB Moral Consideration of Covid Vaccines](https://www.usccb.org/moral-considerations-covid-vaccines)  
 >It is because of this respect for the human person that the USCCB, in collaboration with other organizations working to protect human life, has been engaged in a campaign advocating for the development of a vaccine for COVID-19 that has no link to abortion.
 >
@@ -27,9 +27,9 @@ Vaccine Ethics
 
 [Catechism: Dignity of the Human Person (Sin)](http://www.scborromeo.org/ccc/p3s1c1a8.htm)  
 >1846 The Gospel is the revelation in Jesus Christ of God's mercy to sinners.113 The angel announced to Joseph: "You shall call his name Jesus, for he will save his people from their sins."114 The same is true of the Eucharist, the sacrament of redemption: "This is my blood of the covenant, which is poured out for many for the forgiveness of sins."115
-
+>
 >1847 "God created us without us: but he did not will to save us without us."116 To receive his mercy, we must admit our faults. "If we say we have no sin, we deceive ourselves, and the truth is not in us. If we confess our sins, he is faithful and just, and will forgive our sins and cleanse us from all unrighteousness."117
-
+>
 >1848 As St. Paul affirms, "Where sin increased, grace abounded all the more."118 But to do its work grace must uncover sin so as to convert our hearts and bestow on us "righteousness to eternal life through Jesus Christ our Lord."119 Like a physician who probes the wound before treating it, God, by his Word and by his Spirit, casts a living light on sin:
 
 >1868 Sin is a personal act. Moreover, we have a responsibility for the sins committed by others when we cooperate in them:
@@ -37,7 +37,7 @@ Vaccine Ethics
 >- by ordering, advising, praising, or approving them;  
 >- by not disclosing or not hindering them when we have an obligation to do so;  
 >- by protecting evil-doers.  
-
+>
 >1869 Thus sin makes men accomplices of one another and causes concupiscence, violence, and injustice to reign among them. Sins give rise to social situations and institutions that are contrary to the divine goodness. "Structures of sin" are the expression and effect of personal sins. They lead their victims to do evil in their turn. In an analogous sense, they constitute a "social sin." (John Paul II, RP 16.)
 
 [USCCB on Morally Sound Coronavirus Vaccine](https://www.ncregister.com/news/usccb-and-pro-lifers-demand-morally-sound-coronavirus-vaccine)  
@@ -51,9 +51,9 @@ and to ask that their healthcare system make other types of vaccines available.
 
 [‘Miraculous’ ivermectin approved for use in the US for the treatment of COVID-19](https://www.lifesitenews.com/news/miraculous-ivermectin-approved-for-use-in-the-us-for-the-treatment-of-covid-19)  
 >January 19, 2021 (LifeSiteNews) —Following the diligent efforts of physicians associated with a group called Front Line Covid-19 Critical Care Alliance (FLCCC), the National Institutes of Health (NIH) has upgraded their recommendation for the “miraculous” drug ivermectin, making it an option for use in treating COVID-19 within the United States. 
- 
+> 
 >“Ivermectin is one of the world’s safest, cheapest and most widely available drugs,” explained Dr. Kory, President of the FLCCC Alliance. “The studies we presented to the NIH revealed high levels of statistical significance showing large magnitude benefit in transmission rates, need for hospitalization, and death. What’s more, the totality of trials data supporting ivermectin is without precedent.”  
-
+>
 >Dr. Kory [explained](https://rumble.com/vbsxih-doctor-pleads-for-review-of-the-data-during-covid-19-senate-hearing.html) that ivermectin “basically obliterates transmission of this virus,” with “miraculous effectiveness.”
 
 [Ethics of Utilitarianism and Vaccine War Against Covid](https://www.lifesitenews.com/blogs/the-ethics-of-utilitarianism-and-the-vaccine-war-against-coronavirus)   
@@ -73,9 +73,9 @@ and to ask that their healthcare system make other types of vaccines available.
 >1901 If authority belongs to the order established by God, "the choice of the political regime and the appointment of rulers are left to the free decision of the citizens."20 The diversity of political regimes is morally acceptable, provided they serve the legitimate good of the communities that adopt them. Regimes whose nature is contrary to the natural law, to the public order, and to the fundamental rights of persons cannot achieve the common good of the nations on which they have been imposed.
 
 >1903 Authority is exercised legitimately only when it seeks the common good of the group concerned and if it employs morally licit means to attain it. If rulers were to enact unjust laws or take measures contrary to the moral order, such arrangements would not be binding in conscience. In such a case, "authority breaks down completely and results in shameful abuse."23
-
+>
 >1904 "It is preferable that each power be balanced by other powers and by other spheres of responsibility which keep it within proper bounds. This is the principle of the 'rule of law,' in which the law is sovereign and not the arbitrary will of men."24
-
+>
 >1905 In keeping with the social nature of man, the good of each individual is necessarily related to the common good, which in turn can be defined only in reference to the human person: Do not live entirely isolated, having retreated into yourselves, as if you were already justified, but gather instead to seek the common good together.25
 
 >The common good concerns the life of all. It calls for prudence from each, and even more from those who exercise the office of authority. It consists of three essential elements:
