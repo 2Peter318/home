@@ -153,12 +153,13 @@ and to ask that their healthcare system make other types of vaccines available.
 
 >Led by the Front Line COVID-19 Critical Care Alliance (FLCCC), a group of medical and scientific experts reviewed published peer-reviewed studies, manuscripts, expert meta-analyses, and epidemiological analyses of regions with ivermectin distribution efforts all showing that ivermectin is an effective prophylaxis and treatment for COVID-19.  
 
+[Children of God For Life Covid-19 Vaccine Chart](https://cogforlife.org/wp-content/uploads/CovidCompareMoralImmoral.pdf)  
 
-How to Vaccinate Like a Catholic: A Guide Through the Prickly COVID-19 Issues
-https://churchlifejournal.nd.edu/articles/how-to-vaccinate-like-a-catholic/  
+[How to Vaccinate Like a Catholic: A Guide Through the Prickly COVID-19 Issues](https://churchlifejournal.nd.edu/articles/how-to-vaccinate-like-a-catholic/)    
 
-Before I Formed You In The Womb I Knew You  
-https://sfarchdiocese.org/inthewomb  
+[Before I Formed You In The Womb I Knew You](https://sfarchdiocese.org/inthewomb)   
+
+[EWTN - Covid-19 Vaccine Morality](https://www.ewtn.com/catholicism/answers/covid-19-vaccine-morality-20571)
 
 
 Employment Law  
