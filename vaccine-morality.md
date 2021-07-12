@@ -1,4 +1,4 @@
-Vaccine Ethics
+Vaccine Morality
 ---
 [HEK293](https://www.crisismagazine.com/2021/catholic-conscience-and-the-covid-19-vaccine)    
 >The most prominent cell line, called HEK 293, comes from an abortion performed in the 1970’s. It’s labeled 293 because that’s how many experimental attempts the researchers needed to get a working cell line. Therefore, though the abortion-to-experiment ratio is not precisely one-to-one, **hundreds of abortions** went into the project, even if they didn’t result in the working line. 
