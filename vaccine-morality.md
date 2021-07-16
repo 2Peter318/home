@@ -212,11 +212,11 @@ and to ask that their healthcare system make other types of vaccines available.
 >According to data from the Centers for Disease Control and Prevention, COVID-19 is deadliest among older populations. In fact, through February 17, 93 percent of COVID-19 deaths nationwide have occurred among those ages 55 or older. Only 0.2 percent were younger than 25. This trend can also be found on the state level.  
 
 [Covid-19 Survival Rate by Age](https://www.lifesitenews.com/opinion/the-decimal-point-that-blew-up-the-world)  
->survival rate by age:
->>99.997% for 0-19 years 
->>99.98% for 20-49 years
->>99.5% for 50-69 years 
->>94.6% for 70+ years 
+>survival rate by age:  
+>*99.997% for 0-19 years 
+>*99.98% for 20-49 years
+>*99.5% for 50-69 years 
+>*94.6% for 70+ years 
 
 [Estimating mortality from COVID-19](https://www.who.int/news-room/commentaries/detail/estimating-mortality-from-covid-19)  
 >(WHO) The true severity of a disease can be described by the Infection Fatality Ratio. ... Many such serological surveys are currently being undertaken worldwide... with estimates of IFR converging at **approximately 0.5 - 1%**.  
