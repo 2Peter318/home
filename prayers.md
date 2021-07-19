@@ -40,7 +40,7 @@ thrust into hell Satan, and all the evil spirits, who prowl about the world seek
 Amen.
 
 **A Father's Binding Prayer For His Family**  
-Eternal Father, thank you for calling me to be the father of this family. In the name of your Son, Jesus Christ, and by the infinite power of His Precious Blood, and through the intercession of St. Joseph, I bind and cast out any evil spirits that may be in our home, or cars, or that are attacking any member of my family. I send them immediately and directly to the foot of the Cross to be judged, never to bother us again. come, Holy Spirit, and descend upon our home and fill us (name loved ones) with your light and love. In the name of the Father, and of the Son, and of the Holy Spirit. Amen.
+Eternal Father, thank you for calling me to be the father of this family. In the name of your Son, Jesus Christ, and by the infinite power of His Precious Blood, and through the intercession of St. Joseph, I bind and cast out any evil spirits that may be in our home, or cars, or that are attacking any member of my family. I send them immediately and directly to the foot of the Cross to be judged, never to bother us again. Come, Holy Spirit, and descend upon our home and fill us (name loved ones) with your light and love. In the name of the Father, and of the Son, and of the Holy Spirit. Amen.
 
 Favorite Prayers
 ---
@@ -73,10 +73,10 @@ I fly unto you and beg your protection.
 Despise not O Guardian of the Redeemer my humble supplication,
 but in your bounty, hear and answer me. Amen.  
 
-**Novena Prayer to St Joseph**
+**Novena Prayer to St Joseph**  
 O glorious Saint Joseph, faithful follower of Jesus Christ, to we raise our hearts and hands, to implore your powerful intercession, to obtain from the gentle heart of Jesus all the help and graces necessary for our spiritual and temporal welfare, particularly the grace of a happy death.  
 
-O guardian of the word incarnate we feel animated with confidence that your prayers on our behalf will be graciously heard before the throne of God.
+O guardian of the word incarnate we feel animated with confidence that your prayers on our behalf will be graciously heard before the throne of God.  
 
 **Thomas Merton Prayer**  
 My Lord God, I have no idea where I am going.  
@@ -107,7 +107,7 @@ Virgin Most Sorrowful, pray for us.
 
 Our Father, Hail Mary, Glory Be.
 
-Latin Prayers
+Latin Prayers  
 ---
 **Sign of the Cross**  
 In nomine Patris, et Filii, et Spiritus Sancti. Amen
