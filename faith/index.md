@@ -1,6 +1,3 @@
-Prayers  
+Believe  
 ---
-[Morning Prayers]()  
-
-Saint Joseph  
----
+[Liturgical Calendar](catholic-monthly-devionals.md)  
