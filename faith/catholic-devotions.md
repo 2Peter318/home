@@ -1,4 +1,4 @@
-Catholic Monthly Devotions
+Catholic Devotions
 ---
 |Month     | Devotion
 |----------|----------
