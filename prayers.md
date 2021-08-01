@@ -78,6 +78,13 @@ O glorious Saint Joseph, faithful follower of Jesus Christ, to we raise our hear
 
 O guardian of the word incarnate we feel animated with confidence that your prayers on our behalf will be graciously heard before the throne of God.  
 
+**Hail Joseph**  
+Hail Joseph, Son of David, do not fear.  
+Jesus will save his people from their sins.  
+St. Joseph, Virginal Father of Jesus,  
+intercede for us sinners in need.  
+Amen.  
+
 **Thomas Merton Prayer**  
 My Lord God, I have no idea where I am going.  
 I do not see the road ahead of me.  
