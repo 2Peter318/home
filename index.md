@@ -1,6 +1,6 @@
 [Read](books.md) | 
 [Pray](prayers.md) | 
-[Memorize](memorize.md) |
+[Believe](faith) |
 [About](mission.md)
 
 [2nd Letter of St Peter Chapter 3]()  
