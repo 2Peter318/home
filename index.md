@@ -1,6 +1,7 @@
 [Read](books.md) | 
 [Pray](prayers.md) | 
-[Memorize](memorize.md) 
+[Memorize](memorize.md) |
+[About](mission.md)
 
 [2nd Letter of St Peter Chapter 3]()  
 >This is now the second letter that I have written to you, beloved, and in both of them I have aroused your sincere mind by way of reminder; that you should remember the predictions of the holy prophets and the commandment of the Lord and Savior through your apostles. First of all you must understand this, that scoffers will come in the last days with scoffing, following their own passions and saying, “Where is the promise of his coming? For ever since the fathers fell asleep, all things have continued as they were from the beginning of creation.” They deliberately ignore this fact, that by the word of God heavens existed long ago, and an earth formed out of water and by means of water, through which the world that then existed was deluged with water and perished. But by the same word the heavens and earth that now exist have been stored up for fire, being kept until the day of judgment and destruction of ungodly men.
