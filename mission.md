@@ -1,19 +1,17 @@
-## Mission Statement
-
-*Wednesday, March 14, 2018*
+## About
 
 In three words: Growth, grace, knowledge
 
-In 10 words: I desire to grow through faith, stewardship, relationships, and church.
+In 10 words: Desire growth through faith, stewardship, relationships, and church.
 
-I desire to grow in grace and knowledge of my Lord and Savior Jesus Christ through: (1) obedience to God through prayer, Bible study, and self-discipline; (2) Stewardship of God-given gifts of mind, body, spirit, soul, money, and career; (3) Relationships with friends, family, colleagues, and neighbors; (4) commitment to a local church and its mission.
+Desire growth in grace and knowledge of our Lord and Savior Jesus Christ through: (1) obedience to God through prayer, Bible study, and self-discipline; (2) Stewardship of God-given gifts of mind, body, spirit, soul, money, and career; (3) Relationships with friends, family, colleagues, and neighbors; (4) commitment to a local church and its mission.
 
 ### Introduction
   * 2 Peter 3:18 - Grow in the grace and knowledge of our Lord and Savior Jesus Christ. To Him be the glory both now and forever! Amen.
     * Growth - It is finished. Perfection is a process, not an end.
-    * Grace - Am I a better person today than I was yesterday?
-    * Knowledge - Be a life-long learner.
-    * Jesus - The culmination of Creation. God (3) unites (+) with Man (4) equalling perfection (= 7). Seventh covenant. Theology of the Body.
+    * Grace - Grace is first and foremost the gift of the Spirit who justifies and sanctifies us. (CCC 2003)
+    * Knowledge - Life-long learning.
+    * Jesus - The culmination of Creation. God (3) unites (+) with Man (4) equalling perfection (= 7). Seventh covenant. 
   * Contraints
     * Faith-rest - Relaxed-tension.
       * Heb 4:1 - Therefore, since the promise of entering his rest still stands, let us be careful that none of you be found to have fallen short of it.
@@ -25,7 +23,7 @@ I desire to grow in grace and knowledge of my Lord and Savior Jesus Christ throu
     * 1 John 5:3 - This is love for God: to obey his commands. And His commands are not burdensome, for everyone born of God overcomes the world. This is the victory that has overcome the world, even our faith. Who is it that overcomes the world? Only he who believes that Jesus is the Son of God.
   * Prayer
     * 1 Thes 5:16 - Be joyful always; pray continually; give thanks in all circumstances, for this is God's will for you in Christ Jesus.
-    * Where does prayer come from? Whether prayer is expressed in words or gestures, it is the whole man who prays. But in naming the source of prayer, Scripture speaks sometimes of the soul or the spirit, but most often of the heart (more than a thousand times). According to Scripture, it is the heart that prays. If our heart is far from God, the words of prayer are in vain.
+    * Where does prayer come from? Whether prayer is expressed in words or gestures, it is the whole man who prays. But in naming the source of prayer, Scripture speaks sometimes of the soul or the spirit, but most often of the heart (more than a thousand times). According to Scripture, it is the heart that prays. If our heart is far from God, the words of prayer are in vain. (CCC 2562)
   * Bible study
     * Heb 4:12 - For the word of God is living and active. Sharper than any two-edged sword, it penetrates even to the dividing soul and spirit, joints and marrow; it judges the thoughts and intents of the heart.
   * Self-discipline
@@ -38,7 +36,7 @@ I desire to grow in grace and knowledge of my Lord and Savior Jesus Christ throu
   * Spirit
     * 1 Peter 4:10 - Each one should use whatever gift he has received to serve others, faithfully administering God's grace in its various forms.
   * Soul
-    * Sometimes the soul is distinguished from the spirit: St. Paul for instance prays that God may sanctify his people “wholly,” with “spirit and soul and body” kept sound and blameless at the Lord’s coming. ( 1 Thess 5:23) The Church teaches that this distinction does not introduce a duality into the soul. “Spirit” signifies that from creation man is ordered to a supernatural end and that his soul can gratuitously be raised beyond all it deserves to communion with God.
+    * Sometimes the soul is distinguished from the spirit: St. Paul for instance prays that God may sanctify his people “wholly,” with “spirit and soul and body” kept sound and blameless at the Lord’s coming. (1 Thess 5:23) The Church teaches that this distinction does not introduce a duality into the soul. “Spirit” signifies that from creation man is ordered to a supernatural end and that his soul can gratuitously be raised beyond all it deserves to communion with God.
   * Body
     * 1 Cor 6:19 - Do you not know that your body is a temple of the Holy Spirit, who is in you, whom you have received from God? You are not your own; you were bought at a price. Therefore honor God with your body.
     * Gal 2:20 - I have been crucified with Christ and I no longer live, but Christ lives in me. The life I live in the body, I live by faith in the Son of God, who loved me and gave himself for me.
