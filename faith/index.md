@@ -1,3 +1,3 @@
 Believe  
 ---
-[Liturgical Calendar](catholic-monthly-devionals.md)  
+[Liturgical Calendar](catholic-devotions.md)  
