@@ -95,7 +95,9 @@ and to ask that their healthcare system make other types of vaccines available.
 
 [Before I Formed You In The Womb I Knew You](https://sfarchdiocese.org/inthewomb)   
 
-[EWTN - Covid-19 Vaccine Morality](https://www.ewtn.com/catholicism/answers/covid-19-vaccine-morality-20571)
+[EWTN - Covid-19 Vaccine Morality](https://www.ewtn.com/catholicism/answers/covid-19-vaccine-morality-20571)  
+
+[Letter from Bishops of Colorado](https://denvercatholic.org/a-letter-from-the-bishops-of-colorado-on-covid-19-vaccine-mandates/)  
 
 ### Catechsim of the Catholic Church  
 
@@ -213,10 +215,10 @@ and to ask that their healthcare system make other types of vaccines available.
 
 [Covid-19 Survival Rate by Age](https://www.lifesitenews.com/opinion/the-decimal-point-that-blew-up-the-world)  
 >survival rate by age:  
->*99.997% for 0-19 years 
->*99.98% for 20-49 years
->*99.5% for 50-69 years 
->*94.6% for 70+ years 
+>* 99.997% for 0-19 years 
+>* 99.98% for 20-49 years
+>* 99.5% for 50-69 years 
+>* 94.6% for 70+ years 
 
 [Estimating mortality from COVID-19](https://www.who.int/news-room/commentaries/detail/estimating-mortality-from-covid-19)  
 >(WHO) The true severity of a disease can be described by the Infection Fatality Ratio. ... Many such serological surveys are currently being undertaken worldwide... with estimates of IFR converging at **approximately 0.5 - 1%**.  
