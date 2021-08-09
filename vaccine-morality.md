@@ -1,17 +1,17 @@
 ## Vaccine Ethics
 
 ### Executive Summary
-* Abortion is intrinsically evil.
-* All currently available C19 vaccines were developed or tested using fetal cell lines.
-* These fetal cell lines are the result of hundreds of abortions.
-* There are vaccines in development that do not use fetal cells.
-* Covid-19 vaccination is a cooperation with evil.
+* Vaccination is not morally obligatory and so must be voluntary.
+* All currently available C19 vaccines in the U.S. were developed or tested using fetal cell lines.
+* There are vaccines in development in the U.S. that do not use fetal cells.
+* There is a moral duty to refuse the use of medical prodcucts, including certain vaccines, that are created using human cell lines derived from abortion.
 * However, it could be morally justified if
   * there is a grave danger, and
   * there is no cure, and
+  * there is no morally uncomprised vaccine, and
+  * the intent is to preserve life, and
   * inoculation is done under protest.
-* Incoulation must be voluntary.
-* Companies are required to provide medical and religious exemptions.
+* A person is morally required to obey his or her conscience.
 * Common good cannot infringe on individual rights and freedoms.
 
 ### USCCB  
