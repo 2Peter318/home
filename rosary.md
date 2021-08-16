@@ -1,3 +1,4 @@
+## Rosary  
 
 |Mystery                 |  Fruit                     | Bible Reference
 |:-----------------------|:---------------------------|:--------------
@@ -27,12 +28,12 @@
 |Coronation              |  Trust Mary's Intercession |
 |**Saint Joseph** (Wed)
 |Betrothal to Mary       |  Sanctity of Marriage      | Matt 1:18
-|Annuciation to Joseph   |  Prudecne & Justice        | Matt 1:19-20  
+|Annuciation to Joseph   |  Prudence & Justice        | Matt 1:19-20  
 |Birth & Naming of Jesus |  Patron of Catholic Church | Matt 1:22-25  
 |Flight Into Egypt       |  Reparation for Sins       | Matt 2:13-15  
 |Hidden Life at Nazareth |  Family                    | Matt 2:23, Luke 2:51-52
 
-## Apostle's Creed
+### Apostle's Creed
 I believe in God, the Father Almighty, Creator of Heaven and earth;  
 and in Jesus Christ, His only Son Our Lord,  
 Who was conceived by the Holy Spirit, born of the Virgin Mary, suffered under Pontius Pilate, was crucified, died, and was buried.  
@@ -41,7 +42,7 @@ He ascended into Heaven, and sitteth at the right hand of God, the Father almigh
 I believe in the Holy Spirit, the holy Catholic Church, the communion of saints, the forgiveness of sins, the resurrection of the body and life everlasting.  
 Amen.
 
-## Hail, holy Queen
+### Hail, holy Queen
 Hail, holy Queen, Mother of mercy, our life, our sweetness and our hope. To thee do we cry, poor banished children of Eve. To thee do we send up our sighs, mourning and weeping in this valley of tears. Turn, then, most gracious advocate, thine eyes of mercy toward us, and after this, our exile, show unto us the blessed fruit of thy womb, Jesus. O clement, O loving, O sweet Virgin Mary.  
 V. Pray for us, O holy Mother of God.  
 R. That we may be made worthy of the promises of Christ.  
