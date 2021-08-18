@@ -100,6 +100,14 @@ and to ask that their healthcare system make other types of vaccines available.
 [Letter from Bishops of Colorado](https://denvercatholic.org/a-letter-from-the-bishops-of-colorado-on-covid-19-vaccine-mandates/)  
 
 ### Catechsim of the Catholic Church  
+[Moral Conscience]()  
+>1776 "Deep within his conscience man discovers a law which he has not laid upon himself but which he must obey. Its voice, ever calling him to love and to do what is good and to avoid evil, sounds in his heart at the right moment. . . . For man has in his heart a law inscribed by God. . . . His conscience is man's most secret core and his sanctuary. There he is alone with God whose voice echoes in his depths."
+>
+>1777 Moral conscience, present at the heart of the person, enjoins him at the appropriate moment to do good and to avoid evil. It also judges particular choices, approving those that are good and denouncing those that are evil. It bears witness to the authority of truth in reference to the supreme Good to which the human person is drawn, and it welcomes the commandments. When he listens to his conscience, the prudent man can hear God speaking.
+
+>1778 Conscience is a judgment of reason whereby the human person recognizes the moral quality of a concrete act that he is going to perform, is in the process of performing, or has already completed. In all he says and does, man is obliged to follow faithfully what he knows to be just and right.  
+>
+>1782 Man has the right to act in conscience and in freedom so as personally to make moral decisions. "**He must not be forced to act contrary to his conscience**. Nor must he be prevented from acting according to his conscience, especially in religious matters."  
 
 [Dignity of the Human Person (Sin)](http://www.scborromeo.org/ccc/p3s1c1a8.htm)  
 >1846 The Gospel is the revelation in Jesus Christ of God's mercy to sinners.113 The angel announced to Joseph: "You shall call his name Jesus, for he will save his people from their sins."114 The same is true of the Eucharist, the sacrament of redemption: "This is my blood of the covenant, which is poured out for many for the forgiveness of sins."115
