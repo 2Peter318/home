@@ -30,7 +30,10 @@ by Pope John Paul II
 Green Edition  
 
 [A Shorter Summa]() 
-by Peter Kreeft
+by Peter Kreeft  
+
+[Catholic Guide to Miracles](https://www.sophiainstitute.com/products/item/the-catholic-guide-to-miracles) 
+by Eric Sammons
 
 Holy Family
 ---
