@@ -1,6 +1,7 @@
 ## Vaccine Ethics
 
 ### Executive Summary
+* It is never morally justified to develop a vaccine through the use of the cell lines of aborted fetuses.
 * Vaccination is not morally obligatory and so must be voluntary.
 * All currently available C19 vaccines in the U.S. were developed or tested using fetal cell lines.
 * There are vaccines in development in the U.S. that do not use fetal cells.
