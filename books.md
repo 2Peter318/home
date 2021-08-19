@@ -74,34 +74,6 @@ by Marathon Meb
 [Running Until You're 100](https://www.biblio.com/9781841263090) 
 by Jeff Calloway  
 
-Reading List
----
-[Dark Agenda](https://lccn.loc.gov/2018277449) 
-by David Horowitz
-
-[Civilization of Love](http://www.acivilizationoflove.com/)
-by Carl Anderson [Buy](https://www.knightsgear.com/products/605717)  
-
-[The Virtue Driven Life](https://lccn.loc.gov/2006932354) 
-by Benedict Groeschel
-
-[Prayer Primer: Igniting A Fire Within](https://lccn.loc.gov/2018949828) 
-by Fr. Thomas Dubay  
-
-[Quiet Strength](https://lccn.loc.gov/2007300164) 
-by Tony Dungy  
-
-[Life Is Worth Living]() 
-by Fulton J. Sheen
-
-[5 Things With Father Bill](https://store.loyolapress.com/5-things-with-father-bill) 
-by William Byrne
-
-Tech
----
-[Teach Yourself SQL](https://lccn.loc.gov/2011011148)
-by Ryan Stephens, Ron Plew, Arie D. Jones  
-
 Search  
 ---
 [LC Catalog](https://catalog.loc.gov/)  
