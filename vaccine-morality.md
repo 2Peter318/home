@@ -36,7 +36,7 @@
 
 [43]:https://www.usccb.org/resources/letters-pharmaceutical-companies  
 
-### Vatican  
+### Magisterium  
 [Evangelium Vitae](http://www.vatican.va/content/john-paul-ii/en/encyclicals/documents/hf_jp-ii_enc_25031995_evangelium-vitae.html)  
 >No circumstance, no purpose, no law whatsoever can ever make licit an act which is intrinsically illicit, since it is contrary to the Law of God which is written in every human heart, knowable by reason itself, and proclaimed by the Church. This evaluation of the morality of abortion is to be applied also to the recent forms of intervention on human embryos which, although carried out for purposes legitimate in themselves, inevitably involve the killing of those embryos. This is the case with experimentation on embryos, which is becoming increasingly widespread in the field of biomedical research and is legally permitted in some countries….[T]he use of human embryos or fetuses as an object of experimentation constitutes a crime against their dignity as human beings who have a right to the same respect owed to a child once born, just as to every person. This moral condemnation also regards procedures that exploit living human embryos and fetuses-sometimes specifically ‘produced’ for this purpose by in vitro fertilization-either to be used as ‘biological material’ or as providers of organs or tissue for transplants in the treatment of certain diseases. The killing of innocent human creatures, even if carried out to help others, constitutes an absolutely unacceptable act. (Encyclical Evangelium vitae, 62-63)
 
