@@ -1,5 +1,8 @@
 Memorize
 ---
+
+Finally, brethren, whatever is true, whatever is honorable, whatever is just, whatever is pure, whatever is lovely, whatever is gracious, if there is any excellence, if there is anything worthy of praise, think about these things. (Philippian 4:18)
+
 Be strong and of good courage; be not frightened, neither be dismayed; for the Lord your God is with you wherever you go. (Joshua 1:9)  
 
 We know that in everything God works for goodk with those who love him, who are called according to his purpose. (Romans 8:28)  
