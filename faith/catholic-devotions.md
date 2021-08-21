@@ -1,7 +1,7 @@
-Catholic Devotions
----
-|Month     | Devotion  |
-|----------|-----------|
+## Catholic Devotions
+
+|Month     | Devotion 
+|----------|-----------
 |January   | The Holy Name of Jesus  
 |February  | The Holy Family (or The Passion) 
 |March     | Saint Joseph  
@@ -15,8 +15,8 @@ Catholic Devotions
 |November  | The Pour Souls in Purgatory  
 |December  | The Immaculate Conception (or Advent)  
 
-Feast Days of Mary  
----
+## Feast Days of Mary  
+
 |Date|Feast
 |---:|-----
 |January 1 | Solemnity of Mary, Mother of God * 
@@ -40,15 +40,15 @@ Feast Days of Mary
 
 `* Holy Day of Obligation`  
 
-Feast Days of Saint Joseph  
----
+## Feast Days of Saint Joseph  
+
 |Date|Feast
 |---:|-----
 |March 19 | Husband of Mary
 |May 1    | St. Joseph, the Worker
 
-Other Feast Days
----  
+## Other Feast Days
+  
 |Date|Feast
 |---:|-----
 |January 4   | St. Elizabeth Ann Seton
