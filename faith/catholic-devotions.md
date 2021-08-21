@@ -1,7 +1,7 @@
 Catholic Devotions
 ---
-|Month     | Devotion
-|----------|----------
+|Month     | Devotion  |
+|----------|-----------|
 |January   | The Holy Name of Jesus  
 |February  | The Holy Family (or The Passion) 
 |March     | Saint Joseph  
