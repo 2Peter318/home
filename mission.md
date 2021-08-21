@@ -41,7 +41,8 @@ Desire growth in grace and knowledge of our Lord and Savior Jesus Christ through
     * 1 Cor 6:19 - Do you not know that your body is a temple of the Holy Spirit, who is in you, whom you have received from God? You are not your own; you were bought at a price. Therefore honor God with your body.
     * Gal 2:20 - I have been crucified with Christ and I no longer live, but Christ lives in me. The life I live in the body, I live by faith in the Son of God, who loved me and gave himself for me.
   * Mind
-    * Rom 12:2 - Do not conform any longer to the pattern of this world, but be transformed by the renewing of your mind. Then you will be able to test and approve what God's will is -- his good, pleasing and perfect will.
+    * Romans 12:2 - Do not conform any longer to the pattern of this world, but be transformed by the renewing of your mind. Then you will be able to test and approve what God's will is -- his good, pleasing and perfect will.
+    * Philippians 4:18 - Finally, brethren, whatever is true, whatever is honorable, whatever is just, whatever is pure, whatever is lovely, whatever is gracious, if there is any excellence, if there is anything worthy of praise, think about these things.
   * Money
     * Prov 30:8 - Keep falsehood and lies far from me; give me neither pvoerty nor riches, but give me only my daily bread. Otherwise, I may have too much and disown you and say, 'Who is the Lord?' or I may become poor and steal, and so dishonor the name of my God.
 	* Prov 13:22 - The good leave an inheritance to their children’s children, but the wealth of the sinner is stored up for the just.
