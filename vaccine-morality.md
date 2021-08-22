@@ -129,7 +129,7 @@ and to ask that their healthcare system make other types of vaccines available.
 
 [EWTN - Covid-19 Vaccine Morality](https://www.ewtn.com/catholicism/answers/covid-19-vaccine-morality-20571)  
 
-[Letter from Bishops of Colorado](https://denvercatholic.org/a-letter-from-the-bishops-of-colorado-on-covid-19-vaccine-mandates/)  
+[Letter from Bishops of Colorado]:(https://denvercatholic.org/a-letter-from-the-bishops-of-colorado-on-covid-19-vaccine-mandates/)  
 
 [National Catholic Bioethics Center](https://static1.squarespace.com/static/5e3ada1a6a2e8d6a131d1dcd/t/611bb642cf08455cfd776d21/1629206082788/VER.pdf)  
 
