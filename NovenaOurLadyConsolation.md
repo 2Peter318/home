@@ -31,9 +31,9 @@ Jesus Christ, our great High Priest, you gave bishops, priests and deacons a sha
 
 Mary, Consoler of the Afflicted, you comforted and exhorted the Church in its infancy, we ask you to pray with us for our bishops, priests and deacons. Console and strengthen Jesus’ clergy by your prayers. May they be given your gifts of humility and trust in your Son. Pray that they would come to love and honor you as their mother and consoler.
 
-Our Father
-Hail Mary 
-Glory Be
+Our Father  
+Hail Mary  
+Glory Be  
 
 ## Day Three: For Religious
 
@@ -41,9 +41,9 @@ Holy Spirit of God, you call men and women to follow Jesus in roles of service t
 
 Mary, Consoler of the Afflicted, we ask you to pray with us for our beloved sisters and brothers who have consecrated their lives to Christ Jesus as religious sisters, brothers and priests. May they be granted the grace of perseverance to their vowed commitment and a deepening of their love for Jesus. May they love you and imitate your humility.
 
-Our Father 
-Hail Mary
-Glory Be
+Our Father  
+Hail Mary  
+Glory Be  
 
 ## Day Four: For Families
 
@@ -51,9 +51,9 @@ God our Father, source of family life, we lift up our families to you. Keep them
 
 Mary, Consoler of the Afflicted, Mother of the Holy Family of Nazareth, pray for our families. Please pray that God would bless and protect our families and make them one in His love. Pray that He would heal divisions and broken relationships in our families and give us the courage both to forgive and accept forgiveness. May we come to love and respect each other after the example of you, Jesus and Joseph in your home in Nazareth.
 
-Our Father
-Hail Mary
-Glory Be
+Our Father  
+Hail Mary  
+Glory Be  
 
 ## Day Five: For World Peace
 
@@ -61,9 +61,9 @@ Lord Jesus, you are the Prince of Peace. We ask you to bring your peace to our l
 
 Mary, Consoler of the Afflicted, we ask you to pray with us to your Son for peace in the world. May all of humanity come to honor you as the Queen of Peace and accept your Son’s call to bring peace to our troubled world.
 
-Our Father
-Hail Mary 
-Glory Be
+Our Father  
+Hail Mary   
+Glory Be  
 
 ## Day Six: For the Return of Loved Ones to the Practice of the Faith
 
@@ -71,9 +71,9 @@ Holy Spirit, we come to you praying for our loved ones who have left our faith o
 
 Mary, Consoler of the Afflicted, we ask you to pray with us for our loved ones who have left the practice of their faith or who practice no faith at all. We ask you to pray with us to Jesus, your Son, that these our loved ones, would return to the active practice of their faith. May they come to know and love Jesus as their greatest treasure. Amen.
 
-Our Father
-Hail Mary
-Glory Be
+Our Father  
+Hail Mary  
+Glory Be  
 
 ## Day Seven: For the Sick, Suffering and Dying
 
@@ -81,9 +81,9 @@ Father of love, you comfort those who are sick or suffering and you call home to
 
 Mary, Consoler of the Afflicted, we ask you to pray with us for our sick and suffering brothers and sisters. Comfort them as a mother comforts her children in their sicknesses. Bring peace to our brothers and sisters who are dying and strength to those who care for them. Holy Mary, Mother of God, pray for us sinners, now and at the hour of our death. Amen.
 
-Our Father
-Hail Mary
-Glory Be
+Our Father  
+Hail Mary  
+Glory Be  
 
 ## Day Eight: For the Conversions of Sinners and Repentance of Those Already Converted
 
@@ -91,9 +91,9 @@ Jesus, Shepherd of Souls, we ask you to look to all of the people of the world a
 
 Mary, Consoler of the Afflicted, as our mother, you pray unceasingly for all people to repent and accept the gift of salvation given to us by Jesus. We ask you to pray with us that we will repent by asking God’s forgiveness and then live our lives in holiness and goodness, pleasing to God.
 
-Our Father
-Hail Mary
-Glory Be
+Our Father  
+Hail Mary  
+Glory Be  
 
 ## Day Nine: For the end of Religious Persecution Throughout the World and for Christian Unity
 
@@ -101,6 +101,6 @@ Holy Spirit of God, we end this Novena by asking you to touch the hearts and min
 
 Mary, Consoler of the Afflicted, we ask you to pray with us for the end to all religious persecution throughout the entire world. Please pray for the unity of all Christians, that we might be one as Jesus prayed we would be. Amen.
 
-Our Father 
-Hail Mary
-Glory Be
+Our Father   
+Hail Mary  
+Glory Be  
