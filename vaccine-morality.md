@@ -133,6 +133,8 @@ and to ask that their healthcare system make other types of vaccines available.
 
 [National Catholic Bioethics Center](https://static1.squarespace.com/static/5e3ada1a6a2e8d6a131d1dcd/t/611bb642cf08455cfd776d21/1629206082788/VER.pdf)  
 
+[Catholic Medical Association](https://www.cathmed.org/resources/catholic-medical-association-opposes-vaccine-mandates-without-conscience-and-religious-exemptions/)  
+
 ### Catechsim of the Catholic Church  
 [Moral Conscience]()  
 >1776 "Deep within his conscience man discovers a law which he has not laid upon himself but which he must obey. Its voice, ever calling him to love and to do what is good and to avoid evil, sounds in his heart at the right moment. . . . For man has in his heart a law inscribed by God. . . . His conscience is man's most secret core and his sanctuary. There he is alone with God whose voice echoes in his depths."
