@@ -121,6 +121,8 @@ and to ask that their healthcare system make other types of vaccines available.
 >+ Joseph E. Strickland, Bishop of Tyler (USA)
 >+ Athanasius Schneider, Auxiliary bishop of the archdiocese of Saint Mary in Astana
 
+[Restore Ye to Its Owners: on the immorality of receiving vaccines derived from abortion](https://cogforlife.org/wp-content/uploads/VaccineFrCopenhagen.pdf)  
+
 [Children of God For Life Covid-19 Vaccine Chart](https://cogforlife.org/wp-content/uploads/CovidCompareMoralImmoral.pdf)  
 
 [How to Vaccinate Like a Catholic: A Guide Through the Prickly COVID-19 Issues](https://churchlifejournal.nd.edu/articles/how-to-vaccinate-like-a-catholic/)    
