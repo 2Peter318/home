@@ -138,6 +138,45 @@ and to ask that their healthcare system make other types of vaccines available.
 [Catholic Medical Association](https://www.cathmed.org/resources/catholic-medical-association-opposes-vaccine-mandates-without-conscience-and-religious-exemptions/)  
 
 ### Catechsim of the Catholic Church  
+[Image of God](http://www.scborromeo.org/ccc/para/364.htm)  
+>357 Being in the image of God the human individual possesses the **dignity of a person, who is not just something, but someone**. He is capable of self-knowledge, of self-possession and of **freely giving himself** and entering into communion with other persons. And he is called by grace to a covenant with his Creator, to offer him a response of faith and love that no other creature can give in his stead.  
+
+[Body And Soul But Truly One](http://www.scborromeo.org/ccc/p1s2c1p6.htm#362)  
+>362 The human person, created in the image of God, is a being at once corporeal and spiritual. The biblical account expresses this reality in symbolic language when it affirms that "then the LORD God formed man of dust from the ground, and breathed into his nostrils the breath of life; and man became a living being."229 Man, whole and entire, is therefore willed by God.
+>
+>363 In Sacred Scripture the term "soul" often refers to human life or the entire human person.230 But "soul" also refers to the innermost aspect of man, that which is of greatest value in him,231 that by which he is most especially in God's image: "soul" signifies the spiritual principle in man.
+>
+>364 The human body shares in the dignity of "the image of God": it is a human body precisely because it is animated by a spiritual soul, and it is the whole human person that is intended to become, in the body of Christ, a temple of the Spirit:232
+>
+>Man, though made of body and soul, is a unity. Through his very bodily condition he sums up in himself the elements of the material world. Through him they are thus brought to their highest perfection and can raise their voice in praise freely given to the Creator. For this reason man may not despise his bodily life. Rather he is obliged to regard his body as good and to hold it in honor since God has created it and will raise it up on the last day. 233
+365 The unity of soul and body is so profound that one has to consider the soul to be the "form" of the body:234 i.e., it is because of its spiritual soul that the body made of matter becomes a living, human body; spirit and matter, in man, are not two natures united, but rather their union forms a single nature.
+>
+>366 The Church teaches that every spiritual soul is created immediately by God - it is not "produced" by the parents - and also that it is immortal: it does not perish when it separates from the body at death, and it will be reunited with the body at the final Resurrection.235  
+
+[Dignity of the Human Person](http://www.scborromeo.org/ccc/p3s1c1.htm)  
+>1700 The dignity of the human person is rooted in his creation in the image and likeness of God (article 1); it is fulfilled in his vocation to divine beatitude (article 2). It is essential to a human being freely to direct himself to this fulfillment (article 3). By his deliberate actions (article 4), the human person does, or does not, conform to the good promised by God and attested by moral conscience (article 5). Human beings make their own contribution to their interior growth; they make their whole sentient and spiritual lives into means of this growth (article 6). With the help of grace they grow in virtue (article 7), avoid sin, and if they sin they entrust themselves as did the prodigal son1 to the mercy of our Father in heaven (article 8). In this way they attain to the perfection of charity.  
+
+[Image of God](http://www.scborromeo.org/ccc/p3s1c1a1.htm)  
+>1701 "Christ, . . . in the very revelation of the mystery of the Father and of his love, makes man fully manifest to himself and brings to light his exalted vocation."2 It is in Christ, "the image of the invisible God,"3 that man has been created "in the image and likeness" of the Creator. It is in Christ, Redeemer and Savior, that the divine image, disfigured in man by the first sin, has been restored to its original beauty and ennobled by the grace of God.4
+>
+>1702 The divine image is present in every man. It shines forth in the communion of persons, in the likeness of the unity of the divine persons among themselves (cf. chapter two).
+>
+>1703 Endowed with "a spiritual and immortal" soul,5 the human person is "the only creature on earth that God has willed for its own sake."6 From his conception, he is destined for eternal beatitude.
+>
+>1704 The human person participates in the light and power of the divine Spirit. By his reason, he is capable of understanding the order of things established by the Creator. By free will, he is capable of directing himself toward his true good. He finds his perfection "in seeking and loving what is true and good."7
+>
+>1705 By virtue of his soul and his spiritual powers of intellect and will, man is endowed with freedom, an "outstanding manifestation of the divine image."8
+>
+>1706 By his reason, man recognizes the voice of God which urges him "to do what is good and avoid what is evil."9 Everyone is obliged to follow this law, which makes itself heard in conscience and is fulfilled in the love of God and of neighbor. Living a moral life bears witness to the dignity of the person.
+>
+>1707 "Man, enticed by the Evil One, abused his freedom at the very beginning of history."10 He succumbed to temptation and did what was evil. He still desires the good, but his nature bears the wound of original sin. He is now inclined to evil and subject to error:
+>
+>Man is divided in himself. As a result, the whole life of men, both individual and social, shows itself to be a struggle, and a dramatic one, between good and evil, between light and darkness.11
+>
+>1708 By his Passion, Christ delivered us from Satan and from sin. He merited for us the new life in the Holy Spirit. His grace restores what sin had damaged in us.
+>
+>1709 He who believes in Christ becomes a son of God. This filial adoption transforms him by giving him the ability to follow the example of Christ. It makes him capable of acting rightly and doing good. In union with his Savior, the disciple attains the perfection of charity which is holiness. Having matured in grace, the moral life blossoms into eternal life in the glory of heaven.   
+
 [Moral Conscience]()  
 >1776 "Deep within his conscience man discovers a law which he has not laid upon himself but which he must obey. Its voice, ever calling him to love and to do what is good and to avoid evil, sounds in his heart at the right moment. . . . For man has in his heart a law inscribed by God. . . . His conscience is man's most secret core and his sanctuary. There he is alone with God whose voice echoes in his depths."
 >
