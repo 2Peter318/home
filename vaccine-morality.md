@@ -15,6 +15,27 @@
 * A person is morally required to obey his or her conscience.
 * Common good cannot infringe on individual rights and freedoms.
 
+### The Bible
+>In the beginning God created the heavens and the earth (Genesis 1:1). Then God created man in his own image, in the image of God he created him; male and female he created them (Genesis 1:27). God formed man of dust from the ground, and breathed into his nostrils the breath of life; and man became a living being. (Genesis 2:7)  
+
+>I am the LORD your God, who brought you out of the land of Egypt, out of the house of slavery (Exodus 20:2). Honor your father and your mother  You shall not kill. You shall not steal. You shall not covet your neighbor’s house; you shall not covet your neighbor’s wife. (Exodus 20:2,12-13,15,17)   
+
+>“Before I formed you in the womb I knew you, and before you were born I consecrated you; I appointed you a prophet to the nations.” (Jeremish 1:5, cf Isaiah 44:2,24; 45:9)   
+
+>Jesus answered, “The first is, ‘Hear, O Israel: the Lord our God, the Lord is one; 30 you shall love the Lord your God with all your heart, and with all your soul, and with all your mind, and with all your strength.’ 31 The second is this, ‘You shall love your neighbor as yourself.’ There is no other commandment greater than these.”  
+
+>In the beginning was the Word, and the Word was with God, and the Word was God. He was in the beginning with God; all things were made through him, and without him was not anything made that was made. In him was life, and the life was the light of men. (John 1:1-4)   
+
+>an angel of the Lord appeared to him in a dream, saying, “Joseph, son of David, do not fear to take Mary your wife, for that which is conceived in her is of the Holy Spirit;  (Matthew 1:20)  
+
+>And when Elizabeth heard the greeting of Mary, the babe leaped in her womb; and Elizabeth was filled with the Holy Spirit and she exclaimed with a loud cry, “Blessed are you among women, and blessed is the fruit of your womb! And why is this granted me, that the mother of my Lord should come to me? For behold, when the voice of your greeting came to my ears, the babe in my womb leaped for joy. (Luke 1:41-44)     
+
+>Jesus answered them, “Destroy this temple, and in three days I will raise it up.” The Jews then said, “It has taken forty-six years to build this temple, and will you raise it up in three days?” But he spoke of the temple of his body. When therefore he was raised from the dead, his disciples remembered that he had said this; and they believed the scripture and the word which Jesus had spoken. (John 2:19-21, cf. Matthew 26:61, Mark 14:58)  
+
+>Do you not know that you are God’s temple and that God’s Spirit dwells in you? If any one destroys God’s temple, God will destroy him. For God’s temple is holy, and that temple you are. (1 Corinthians 3:16-17)  
+
+>Do you not know that your body is a temple of the Holy Spirit within you, which you have from God? You are not your own; you were bought with a price. So glorify God in your body. (1 Corinthians 6:19-20)  
+
 ### USCCB  
 [USCCB Address the Use of the Johnson & Johnson Covid-19 Vaccine](https://www.usccb.org/news/2021/us-bishop-chairmen-doctrine-and-pro-life-address-use-johnson-johnson-covid-19-vaccine)  
 >*March 2, 2021* However, if one can choose among equally safe and effective COVID-19 vaccines, the vaccine with the least connection to abortion-derived cell lines should be chosen. Therefore, if one has the ability to choose a vaccine, Pfizer or Moderna’s vaccines should be chosen over Johnson & Johnson’s. “While we should continue to insist that pharmaceutical companies stop using abortion-derived cell lines, given the world-wide suffering that this pandemic is causing, we affirm again that being vaccinated can be an act of charity that serves the common good.”
