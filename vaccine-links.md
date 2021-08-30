@@ -67,19 +67,26 @@ For Kids, Benefits of COVID Vaccine ‘Don’t Outweigh Risks,’ Experts Tell F
 https://childrenshealthdefense.org/defender/kids-benefits-covid-vaccine-dont-outweigh-risks/  
 
 ‘We Made a Big Mistake’ — COVID Vaccine Spike Protein Travels From Injection Site, Can Cause Organ Damage  (03 June 2021)  
-https://childrenshealthdefense.org/defender/covid-vaccine-spike-protein-travels-from-injection-site-organ-damage/  
+https://childrenshealthdefense.org/defender/covid-vaccine-spike-protein-travels-from-injection-site-organ-damage/  
+
 What We Know — And May Never Know — About COVID Vaccines (1 Jun 2021)  
-https://childrenshealthdefense.org/defender/what-we-know-may-never-know-about-covid-vaccines/  
+https://childrenshealthdefense.org/defender/what-we-know-may-never-know-about-covid-vaccines/  
+
 Covid Infection Elicits Long Lasting Immunity (1 Jun 2021)  
-https://www.lifesitenews.com/news/covid-infection-elicits-long-lasting-immunity-nullifying-worldwide-vaccine-push-study  
+https://www.lifesitenews.com/news/covid-infection-elicits-long-lasting-immunity-nullifying-worldwide-vaccine-push-study  
+
 Number of Covid Cases in Delhi Crashes After Ivermectin (1 June 2021)  
 https://www.lifesitenews.com/news/number-of-covid-cases-in-delhi-crashes-after-mass-distribution-of-ivermectin  
 
 Pfizer Admitted Its Vaccine Does Not Prevent Covid Infection  
 https://ahrp.org/pfizer-admitted-its-vaccine-does-not-prevent-covid-infection/  
 
-18 Reasons I Won't Be Getting a Covid Vaccine  https://www.deconstructingconventional.com/post/18-reason-i-won-t-be-getting-a-covid-vaccine  
-How to Vaccinate Like a Catholic: A Guide Through the Prickly COVID-19 Issues  https://churchlifejournal.nd.edu/articles/how-to-vaccinate-like-a-catholic/  
+18 Reasons I Won't Be Getting a Covid Vaccine  
+https://www.deconstructingconventional.com/post/18-reason-i-won-t-be-getting-a-covid-vaccine  
+
+How to Vaccinate Like a Catholic: A Guide Through the Prickly COVID-19 Issues  
+https://churchlifejournal.nd.edu/articles/how-to-vaccinate-like-a-catholic/  
+
 Dr. Alan Moy  
 https://bringingamericabacktolife.org/dr-alan-moy/  
 
@@ -117,7 +124,8 @@ Resisting Abortion-tainted Vaccines and the Culture of Death
 https://www.crisismagazine.com/2021/resisting-abortion-tainted-vaccines-and-the-culture-of-death  
 
 How to Object to an Abortion-Tainted COVID-19 Vaccine  
-https://www.ncregister.com/commentaries/how-to-object-to-an-abortion-tainted-covid-19-vaccine  
+https://www.ncregister.com/commentaries/how-to-object-to-an-abortion-tainted-covid-19-vaccine  
+
 Religious Conscience & Aborted Fetal Vaccines  
 https://cogforlife.org/2011/01/01/religious-conscience-aborted-fetal-vaccines/  
 
@@ -163,7 +171,8 @@ https://covid19criticalcare.com/
 
 Why You Should Not Use Ivermectin to Treat or Prevent COVID-19   
 https://www.fda.gov/consumers/consumer-updates/why-you-should-not-use-ivermectin-treat-or-prevent-covid-19  
->Taking a drug for an unapproved use can be very dangerous.  
+>Taking a drug for an unapproved use can be very dangerous.  
+
 Antiparasitic drug Ivermectin kills coronavirus in 48 hours  
 https://www.news-medical.net/news/20200406/Antiparasitic-drug-Ivermectin-kills-coronavirus-in-48-hours.aspx  
 
@@ -344,6 +353,9 @@ https://www.forbes.com/sites/johnlamattina/2018/06/28/the-biopharmaceutical-indu
 
 Effectiveness Dropped to 66% During Delta Peak  
 https://justthenews.com/politics-policy/coronavirus/pfizer-ceo-predicts-there-will-likely-be-vaccine-resistant-covid-19  
+
+Pfizer CEO says a vaccine-resistant coronavirus variant is 'likely' to emerge  
+https://news.yahoo.com/pfizer-ceo-says-vaccine-resistant-205325099.html  
 
 Comirnaty Clinical Trial  
 https://www.medrxiv.org/content/10.1101/2021.07.28.21261159v1.full.pdf  
