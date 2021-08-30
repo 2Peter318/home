@@ -329,6 +329,14 @@ https://www.ncregister.com/commentaries/covid-catholics-and-conscience
 NIH: Estimated Study Completion Date: May 2, 2023  
 https://clinicaltrials.gov/ct2/show/NCT04368728?term=NCT04368728&draw=2&rank=1  
 
+The cause beating the coronadoom is “unknown” or “unacknowledged”.  
+https://wmbriggs.com/post/37095/  
+
+COVID Vaccine Mandates: If I Don’t Want the Jab, What Are My Options?  
+https://thenewamerican.com/covid-vaccine-mandates-if-i-dont-want-the-jab-what-are-my-options/   
+
+Polymer ‘wafers’ placed under the tongue could deliver vaccines of the future (26-May-2021)  
+https://twin-cities.umn.edu/news-events/polymer-wafers-placed-under-tongue-could-deliver-vaccines-future  
 
 ## Right To Refuse  
 
