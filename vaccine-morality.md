@@ -207,6 +207,8 @@ and to ask that their healthcare system make other types of vaccines available.
 >
 >1782 Man has the right to act in conscience and in freedom so as personally to make moral decisions. "**He must not be forced to act contrary to his conscience**. Nor must he be prevented from acting according to his conscience, especially in religious matters."  
 
+>1789 Some rules apply in every case: One may never do evil so that good may result from it;
+
 [Dignity of the Human Person (Sin)](http://www.scborromeo.org/ccc/p3s1c1a8.htm)  
 >1846 The Gospel is the revelation in Jesus Christ of God's mercy to sinners.113 The angel announced to Joseph: "You shall call his name Jesus, for he will save his people from their sins."114 The same is true of the Eucharist, the sacrament of redemption: "This is my blood of the covenant, which is poured out for many for the forgiveness of sins."115
 >
