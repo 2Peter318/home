@@ -55,6 +55,9 @@
 [USCCB - Vaccines And Biomedical Research](https://www.usccb.org/prolife/vaccines-and-biomedical-research)  
 >In the documents listed below, the Vatican urges everyone concerned for the sanctity of life to protest the use of abortion-derived cell lines and advocate for the development of vaccines with no connection to abortion. To make it easier to take this action, we provide the following [sample letters][43] to pharmaceutical companies that are using abortion-derived cell lines to produce and/or test vaccines.  
 
+[Archbishop Joseph Naumann, Chair USCCB Pro-Life Committee](https://www.lifesitenews.com/news/abp-naumann-rejects-covid-19-vaccine-mandates-backs-prophetic-witness-against-abortion-tainted-jabs/)   
+>Catholics can and should insist on their conscience rights and religious liberties based on the authoritative teachings of the Church found in the Catechism, papal and ecumenical council documents, the Congregation for the Doctrine of the Faith, and other sources. The natural law requires all of us to discern carefully right from wrong in conscience as well as to pursue the common good. **A society that fails to respect the rights of conscience lacks a key element of the common good**. The most charitable and just posture is to seek to accommodate the consciences of all persons. It is indeed a fundamental pillar of medical ethics that there should be free and informed consent and no coercion when deciding on a medical intervention.  
+
 [43]:https://www.usccb.org/resources/letters-pharmaceutical-companies  
 
 ### Magesterium  
