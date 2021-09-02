@@ -36,6 +36,12 @@ https://www.lifesitenews.com/news/our-greatest-weapon-against-the-coronavirus-is
 
 ## News & Opinion  
 
+2 Top FDA Vaccine Officials Resign, Raising Questions About Pressure From White House to Approve Boosters  
+Neither believed there was enough data to justify offering booster shots  
+https://childrenshealthdefense.org/defender/2-top-fda-regulators-resign-white-house-approve-boosters/  
+https://nypost.com/2021/09/01/two-senior-fda-officials-resign-over-biden-administration-booster-shot-plan/  
+https://www.politico.com/news/2021/08/31/biden-booster-plan-fda-508149  
+
 In Israel, Being Fully Vaccinated Now Means Three Shots  
 https://www.wsj.com/articles/in-israel-being-fully-vaccinated-now-means-three-shots-11630426257  
 
