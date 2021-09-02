@@ -42,6 +42,9 @@ https://childrenshealthdefense.org/defender/2-top-fda-regulators-resign-white-ho
 https://nypost.com/2021/09/01/two-senior-fda-officials-resign-over-biden-administration-booster-shot-plan/  
 https://www.politico.com/news/2021/08/31/biden-booster-plan-fda-508149  
 
+MASSIVE: PCR testing is a ‘criminal offence’ under Canadian law, expert lawyer says (02-Sep-2021)  
+https://www.lifesitenews.com/news/massive-pcr-testing-is-a-criminal-offence-under-canadian-law-expert-lawyer-says/
+
 In Israel, Being Fully Vaccinated Now Means Three Shots  
 https://www.wsj.com/articles/in-israel-being-fully-vaccinated-now-means-three-shots-11630426257  
 
