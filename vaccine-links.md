@@ -36,6 +36,21 @@ https://www.lifesitenews.com/news/our-greatest-weapon-against-the-coronavirus-is
 
 ## News & Opinion  
 
+In Israel, Being Fully Vaccinated Now Means Three Shots  
+https://www.wsj.com/articles/in-israel-being-fully-vaccinated-now-means-three-shots-11630426257  
+
+Vaccine effectiveness exceeded 90% from March through June but fell to 65.5% in July  
+https://www.nejm.org/doi/full/10.1056/NEJMc2112981  
+
+BREAKING: Texas becomes first state ever to enforce ‘heartbeat law’  
+https://www.liveaction.org/news/texas-first-state-heartbeat-law/
+
+Yahoo News: Why push for a vaccine that is already outdated. (01-Sep-2021)  
+https://news.yahoo.com/booster-shots-could-designed-target-101000866.html  
+
+Evidence for vaccine booster shots isn't clear, but Biden moves ahead anyway (01-Sep-2021)  
+https://www.yahoo.com/gma/evidence-vaccine-booster-shots-isnt-090003582.html  
+
 IHME Healthdata.org Covid Stats  
 https://covid19.healthdata.org/united-states-of-america/indiana?view=cumulative-deaths&tab=trend  
 
