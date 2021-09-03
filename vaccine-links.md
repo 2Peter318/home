@@ -51,6 +51,15 @@ https://www.wsj.com/articles/in-israel-being-fully-vaccinated-now-means-three-sh
 Vaccine effectiveness exceeded 90% from March through June but fell to 65.5% in July  
 https://www.nejm.org/doi/full/10.1056/NEJMc2112981  
 
+Vaccine Wipes Out Anitbodies From Natural Infection  
+https://citizenfreepress.com/breaking/red-cross-vaccine-alert-you-gotta-hear-this/  
+
+Covid-19 natural immunity compared to vaccine-induced immunity: The definitive summary (26-Aug-2021)  
+https://sharylattkisson.com/2021/08/covid-19-natural-immunity-compared-to-vaccine-induced-immunity-the-definitive-summary/  
+
+(UPDATED) Exclusive Summary: Covid-19 Vaccine Concerns (30-Aug-2021)  
+https://sharylattkisson.com/2021/08/exclusive-summary-covid-19-vaccine-concerns/  
+
 BREAKING: Texas becomes first state ever to enforce ‘heartbeat law’  
 https://www.liveaction.org/news/texas-first-state-heartbeat-law/
 
