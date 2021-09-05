@@ -297,13 +297,12 @@ and to ask that their healthcare system make other types of vaccines available.
 
 >In light of these facts, small figures seem increasingly unlikely. At the very least we must concede that the notion that the Covid vaccine has arisen in part from “one tragic abortion” is false and can only be held in intentional ignorance to the facts.
 
-### Grave Danger
-
+### Grave Danger and Other Cures
 [Chloroquine is a potent inhibitor of SARS coronavirus infection and spread](https://pubmed.ncbi.nlm.nih.gov/16115318/)  
->(nih.gov) Conclusion: Chloroquine is effective in preventing the spread of SARS CoV in cell culture. Favorable inhibition of virus spread was observed when the cells were either treated with chloroquine prior to or after SARS CoV infection. In addition, the indirect immunofluorescence assay described herein represents a simple and rapid method for screening SARS-CoV antiviral compounds.  
+>(nih.gov) Conclusion: **Chloroquine is effective in preventing the spread of SARS CoV** in cell culture. Favorable inhibition of virus spread was observed when the cells were either treated with chloroquine prior to or after SARS CoV infection. In addition, the indirect immunofluorescence assay described herein represents a simple and rapid method for screening SARS-CoV antiviral compounds.  
 
 [Efficacy of Ivermectin in the Prophylaxis and Treatment of COVID-19](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC8088823/)  
->(nih.gov) Conclusions: Meta-analyses based on 18 randomized controlled treatment trials of ivermectin in COVID-19 have found large, statistically significant reductions in mortality, time to clinical recovery, and time to viral clearance. Furthermore, results from numerous controlled prophylaxis trials report significantly reduced risks of contracting COVID-19 with the regular use of ivermectin. Finally, the many examples of ivermectin distribution campaigns leading to rapid population-wide decreases in morbidity and mortality indicate that an oral agent effective in all phases of COVID-19 has been identified.
+>April 22, 2021(nih.gov) Conclusions: Meta-analyses based on 18 randomized controlled treatment trials of ivermectin in COVID-19 have found large, statistically **significant reductions in mortality, time to clinical recovery, and time to viral clearance**. Furthermore, results from numerous controlled **prophylaxis trials report significantly reduced risks of contracting COVID-19 with the regular use of ivermectin**. Finally, the many examples of ivermectin distribution campaigns leading to rapid population-wide decreases in morbidity and mortality indicate that an oral agent effective in all phases of COVID-19 has been identified.
 
 [‘Miraculous’ ivermectin approved for use in the US for the treatment of COVID-19](https://www.lifesitenews.com/news/miraculous-ivermectin-approved-for-use-in-the-us-for-the-treatment-of-covid-19)  
 >January 19, 2021 (LifeSiteNews) —Following the diligent efforts of physicians associated with a group called Front Line Covid-19 Critical Care Alliance (FLCCC), the National Institutes of Health (NIH) has upgraded their recommendation for the “miraculous” drug ivermectin, making it an option for use in treating COVID-19 within the United States. 
