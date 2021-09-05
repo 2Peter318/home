@@ -35,11 +35,11 @@ Our greatest weapon against the coronavirus is Vitamin D: Board-certified pathol
 https://www.lifesitenews.com/news/our-greatest-weapon-against-the-coronavirus-is-vitamin-d-board-certified-pathologist  
 
 ## News & Opinion  
-AFLDS Legal Team Files Complaint Against NYC Mayro De Blasios Medical Apartheid  
+AFLDS Legal Team Files Complaint Against NYC Mayro De Blasios Medical Apartheid (05-Sep-2021)  
 https://americasfrontlinedoctors.org/press_releases/americas-frontline-doctors-legal-team-files-complaint-against-nyc-mayor-de-blasios-medical-apartheid/  
 
 2 Top FDA Vaccine Officials Resign, Raising Questions About Pressure From White House to Approve Boosters  
-Neither believed there was enough data to justify offering booster shots  
+Neither believed there was enough data to justify offering booster shots (01-Sep-2021)  
 https://childrenshealthdefense.org/defender/2-top-fda-regulators-resign-white-house-approve-boosters/  
 https://nypost.com/2021/09/01/two-senior-fda-officials-resign-over-biden-administration-booster-shot-plan/  
 https://www.politico.com/news/2021/08/31/biden-booster-plan-fda-508149  
