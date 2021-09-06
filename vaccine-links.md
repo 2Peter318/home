@@ -34,6 +34,9 @@ https://aapsonline.org/category/covid-19/
 Our greatest weapon against the coronavirus is Vitamin D: Board-certified pathologist  
 https://www.lifesitenews.com/news/our-greatest-weapon-against-the-coronavirus-is-vitamin-d-board-certified-pathologist  
 
+Niatonin Protocol  
+https://niacincurescovid.com/  
+
 ## News & Opinion  
 AFLDS Legal Team Files Complaint Against NYC Mayro De Blasios Medical Apartheid (05-Sep-2021)  
 https://americasfrontlinedoctors.org/press_releases/americas-frontline-doctors-legal-team-files-complaint-against-nyc-mayor-de-blasios-medical-apartheid/  
