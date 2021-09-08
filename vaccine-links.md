@@ -3,9 +3,6 @@ Vaccine Links
 
 ## Covid-19 Treatment & Prophylaxis Protocols  
 
-Chloroquine is a potent inhibitor of SARS coronavirus infection and spread  
-https://pubmed.ncbi.nlm.nih.gov/16115318/  
-
 C19 Protocols  
 https://c19protocols.com/   
 https://c19protocols.com/physicians-facilities-offering-early-treatment/  
@@ -19,25 +16,31 @@ https://vladimirzelenkomd.com/
 FLCCC Alliance I-Mask+ Covid-19 Early Treatment  
 https://covid19criticalcare.com/wp-content/uploads/2020/11/FLCCC-I-MASK-Protocol-v4-2020-11-22.pdf  
 
+Association of American Physicians  
+https://aapsonline.org/category/covid-19/  
+
 Ivermectin Journal  
 https://theivermectinjournal.com/  
 
 Ivermectin for COVID-19: real-time meta analysis of 55 studies  
 https://ivmmeta.com/  
 
+Review of the Emerging Evidence Demonstrating the Efficacy of Ivermectin in the Prophylaxis and Treatment of COVID-19  
+https://www.ncbi.nlm.nih.gov/pmc/articles/PMC8088823/  
+
+Chloroquine is a potent inhibitor of SARS coronavirus infection and spread  
+https://pubmed.ncbi.nlm.nih.gov/16115318/  
+
 HCQ For Covid-19  
 https://c19hcq.com/  
-
-Association of American Physicians  
-https://aapsonline.org/category/covid-19/  
-
-Our greatest weapon against the coronavirus is Vitamin D: Board-certified pathologist  
-https://www.lifesitenews.com/news/our-greatest-weapon-against-the-coronavirus-is-vitamin-d-board-certified-pathologist  
 
 Niatonin Protocol  
 https://niacincurescovid.com/  
 
 ## News & Opinion  
+
+India's Ivermectin Blackout - Part III: The Lesson of Kerala  
+https://www.thedesertreview.com/opinion/columnists/indias-ivermectin-blackout---part-iii-the-lesson-of-kerala/article_ccecb97e-044e-11ec-9112-2b31ae87887a.html  
 
 RFK, Jr.: Induced COVID-19 fears could result in 'complete obliteration of critical thinking' (08-Sep-2021)  
 https://justthenews.com/politics-policy/coronavirus/kennedy-jr-says-covid-19-pandemic-could-result-complete-obliteration  
