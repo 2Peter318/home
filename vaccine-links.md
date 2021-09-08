@@ -38,6 +38,10 @@ Niatonin Protocol
 https://niacincurescovid.com/  
 
 ## News & Opinion  
+
+RFK, Jr.: Induced COVID-19 fears could result in 'complete obliteration of critical thinking' (08-Sep-2021)  
+https://justthenews.com/politics-policy/coronavirus/kennedy-jr-says-covid-19-pandemic-could-result-complete-obliteration  
+
 AFLDS Legal Team Files Complaint Against NYC Mayro De Blasios Medical Apartheid (05-Sep-2021)  
 https://americasfrontlinedoctors.org/press_releases/americas-frontline-doctors-legal-team-files-complaint-against-nyc-mayor-de-blasios-medical-apartheid/  
 
