@@ -3,6 +3,12 @@ Vaccine Links
 
 ## Covid-19 Treatment & Prophylaxis Protocols  
 
+Monoclonal Antibody Therapy for COVID  
+https://rumble.com/vm58dd-monoclonal-antibody-therapy-for-covid.html  
+
+Monoclonal Antibody Infusion Resources for COVID Treatment  
+https://www.truthforhealth.org/2021/08/how-to-find-covid-19-monoclonal-antibody-treatment-centers/  
+
 C19 Protocols  
 https://c19protocols.com/   
 https://c19protocols.com/physicians-facilities-offering-early-treatment/  
