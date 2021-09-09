@@ -40,6 +40,13 @@ https://pubmed.ncbi.nlm.nih.gov/16115318/
 HCQ For Covid-19  
 https://c19hcq.com/  
 
+Povidone-Iodine Demonstrates Rapid In Vitro Virucidal Activity Against SARS-CoV-2  
+https://pubmed.ncbi.nlm.nih.gov/32643111/  
+
+Povidone Iodine Mouthwash, Gargle, and Nasal Spray to Reduce Nasopharyngeal Viral Load in Patients With COVID-19  
+A Randomized Clinical Trial  
+https://jamanetwork.com/journals/jamaotolaryngology/fullarticle/2775984  
+
 Niatonin Protocol  
 https://niacincurescovid.com/  
 
