@@ -1,1 +1,5 @@
-
+[Weekly Death Counts](weekly-death-counts.pdf)  
+[Monthly Death Counts](monthly-death-counts-1.pdf)  
+[Monthly Death Counts 2/2](monthly-death-counts-2.pdf)  
+[Comirnaty Clinical Trial](comirnaty-clinical-trial.pdf)  
+[Occams Razor on Effectiveness](occams-razor-effectiveness.pdf)  
