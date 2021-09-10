@@ -55,6 +55,9 @@ https://niacincurescovid.com/
 Postal Workers Exempt from New Vaccine Requirements (09-Sep-2021)
 https://www.msn.com/en-us/news/us/postal-workers-exempt-from-new-vaccine-requirements-report/ar-AAOhiV0  
 
+Delta Is Stopping Itself. Delta is Waning Before National Mandates.  
+https://wmbriggs.com/post/37264/  
+
 India's Ivermectin Blackout - Part III: The Lesson of Kerala  
 https://www.thedesertreview.com/opinion/columnists/indias-ivermectin-blackout---part-iii-the-lesson-of-kerala/article_ccecb97e-044e-11ec-9112-2b31ae87887a.html  
 
