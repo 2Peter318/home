@@ -161,6 +161,8 @@ and to ask that their healthcare system make other types of vaccines available.
 
 [Catholic Medical Association](https://www.cathmed.org/resources/catholic-medical-association-opposes-vaccine-mandates-without-conscience-and-religious-exemptions/)  
 
+[Vaccine Mandates Violate Catholic Moral Teaching](https://www.crisismagazine.com/2021/vaccine-mandates-violate-catholic-moral-teaching)  
+
 ### Catechsim of the Catholic Church  
 [Image of God](http://www.scborromeo.org/ccc/para/364.htm)  
 >357 Being in the image of God the human individual possesses the **dignity of a person, who is not just something, but someone**. He is capable of self-knowledge, of self-possession and of **freely giving himself** and entering into communion with other persons. And he is called by grace to a covenant with his Creator, to offer him a response of faith and love that no other creature can give in his stead.  
@@ -298,11 +300,17 @@ and to ask that their healthcare system make other types of vaccines available.
 >In light of these facts, small figures seem increasingly unlikely. At the very least we must concede that the notion that the Covid vaccine has arisen in part from “one tragic abortion” is false and can only be held in intentional ignorance to the facts.
 
 ### Grave Danger and Other Cures
+[Subcutaneous REGEN-COV Antibody Combination to Prevent Covid-19](https://www.nejm.org/doi/full/10.1056/NEJMoa2109682)  
+>(NEJM.org) Subcutaneous REGEN-COV prevented symptomatic Covid-19 and asymptomatic SARS-CoV-2 infection in previously uninfected household contacts of infected persons. Among the participants who became infected, REGEN-COV reduced the duration of symptomatic disease and the duration of a high viral load.  
+
+[FDA Authorizes Additional Monoclonal Antibody for Treatment of COVID-19](https://www.fda.gov/news-events/press-announcements/coronavirus-covid-19-update-fda-authorizes-additional-monoclonal-antibody-treatment-covid-19)  
+> The primary endpoint was progression of COVID-19 (defined as hospitalization for greater than 24 hours for acute management of any illness or death from any cause) through day 29. Hospitalization or death occurred in 21 (7%) patients who received placebo compared to 3 (1%) patients treated with sotrovimab, an 85% reduction.  
+
 [Chloroquine is a potent inhibitor of SARS coronavirus infection and spread](https://pubmed.ncbi.nlm.nih.gov/16115318/)  
 >(nih.gov) Conclusion: **Chloroquine is effective in preventing the spread of SARS CoV** in cell culture. Favorable inhibition of virus spread was observed when the cells were either treated with chloroquine prior to or after SARS CoV infection. In addition, the indirect immunofluorescence assay described herein represents a simple and rapid method for screening SARS-CoV antiviral compounds.  
 
 [Efficacy of Ivermectin in the Prophylaxis and Treatment of COVID-19](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC8088823/)  
->April 22, 2021(nih.gov) Conclusions: Meta-analyses based on 18 randomized controlled treatment trials of ivermectin in COVID-19 have found large, statistically **significant reductions in mortality, time to clinical recovery, and time to viral clearance**. Furthermore, results from numerous controlled **prophylaxis trials report significantly reduced risks of contracting COVID-19 with the regular use of ivermectin**. Finally, the many examples of ivermectin distribution campaigns leading to rapid population-wide decreases in morbidity and mortality indicate that an oral agent effective in all phases of COVID-19 has been identified.
+>April 22, 2021 (nih.gov) Conclusions: Meta-analyses based on 18 randomized controlled treatment trials of ivermectin in COVID-19 have found large, statistically **significant reductions in mortality, time to clinical recovery, and time to viral clearance**. Furthermore, results from numerous controlled **prophylaxis trials report significantly reduced risks of contracting COVID-19 with the regular use of ivermectin**. Finally, the many examples of ivermectin distribution campaigns leading to rapid population-wide decreases in morbidity and mortality indicate that an oral agent effective in all phases of COVID-19 has been identified.
 
 [‘Miraculous’ ivermectin approved for use in the US for the treatment of COVID-19](https://www.lifesitenews.com/news/miraculous-ivermectin-approved-for-use-in-the-us-for-the-treatment-of-covid-19)  
 >January 19, 2021 (LifeSiteNews) —Following the diligent efforts of physicians associated with a group called Front Line Covid-19 Critical Care Alliance (FLCCC), the National Institutes of Health (NIH) has upgraded their recommendation for the “miraculous” drug ivermectin, making it an option for use in treating COVID-19 within the United States. 
