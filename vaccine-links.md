@@ -52,6 +52,12 @@ https://niacincurescovid.com/
 
 ## News & Opinion  
 
+Stanford Epidemiologist Studies COVID, Finds It’s Highly Treatable and RARELY a Deadly Disease (9-Sep-2021)  
+https://thenewamerican.com/stanford-epidemiologist-studies-covid-finds-its-highly-treatable-and-rarely-a-deadly-disease/  
+
+Covid-19 natural immunity compared to vaccine-induced immunity: The definitive summary  
+https://sharylattkisson.com/2021/09/covid-19-natural-immunity-compared-to-vaccine-induced-immunity-the-definitive-summary/  
+
 Postal Workers Exempt from New Vaccine Requirements (09-Sep-2021)
 https://www.msn.com/en-us/news/us/postal-workers-exempt-from-new-vaccine-requirements-report/ar-AAOhiV0  
 
