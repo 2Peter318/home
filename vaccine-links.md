@@ -52,6 +52,9 @@ https://niacincurescovid.com/
 
 ## News & Opinion  
 
+Joe Biden You Are Forcing People To Take A Vaccine Against A Virus That Is Extinct (09-Sep-2021)  
+https://andmagazine.com/talk/2021/09/09/joe-biden-you-are-forcing-people-to-take-a-vaccine-against-a-virus-that-is-extinct/   
+
 Stanford Epidemiologist Studies COVID, Finds It’s Highly Treatable and RARELY a Deadly Disease (9-Sep-2021)  
 https://thenewamerican.com/stanford-epidemiologist-studies-covid-finds-its-highly-treatable-and-rarely-a-deadly-disease/  
 
