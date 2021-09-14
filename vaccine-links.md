@@ -54,6 +54,7 @@ https://niacincurescovid.com/
 
 Trafalgar Poll: Biden Vaccine Mandate Unconstitutional, Majority Says  
 https://www.newsmax.com/us/vaccination-mandate-unlawful-poll/2021/09/13/id/1036199/  
+https://thetrafalgargroup.org/COSA-National-BidenVaccines-Full-Report.pdf  
 
 Joe Biden You Are Forcing People To Take A Vaccine Against A Virus That Is Extinct (09-Sep-2021)  
 https://andmagazine.com/talk/2021/09/09/joe-biden-you-are-forcing-people-to-take-a-vaccine-against-a-virus-that-is-extinct/   
