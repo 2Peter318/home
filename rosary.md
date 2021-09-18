@@ -1,4 +1,4 @@
-### Rosary (Mary's Psalter)  
+### The Rosary    
 
 |Mystery                 |  Fruit                     | Bible Reference
 |:-----------------------|:---------------------------|:--------------
@@ -73,4 +73,4 @@ Pour forth we beseech Thee, O Lord, Thy grace into our hearts, that we to whom t
 In the name of the Father, and of the Son, and of the Holy Ghost. Amen.
 
 ### History
-Mary gave this prayer to Saint Dominic in ___. The 150 Hail Mary's were more accessible to the laity compared to the 150 Psalms prayber by monks. In 1917, Mary appeared to three children at Fatim under the title Our Lady of the Rosary. She asked for five first Saturdays reparations for the five ___ against her. For each Saturday she asked us to go to confession, receive Holy Communion, recite the Rosary, and meditate for 15 minutes on the 15 mysteries of the Rosary.
+The use of prayer beads pre-dates Christianity and common amoung religions. There is a tradition that Mary gave this prayer to Saint Dominic in 1221, calling it her Psalter. The 150 Hail Mary's were more accessible to the laity compared to the 150 Psalms. The fifteen mysteries in use today were officially established by Pope Pius V in 1569. In 1917, Mary appeared to three children at Fatim under the title Our Lady of the Rosary. She asked for five first Saturdays reparations for the five offenses against her Immaculate Heart. For each Saturday she asked us to go to confession, receive Holy Communion, recite the Rosary, and meditate for 15 minutes on the 15 mysteries of the Rosary. Rosary comes from Latin *rosarium* meaning rose garden, or bouquet of roses. 
