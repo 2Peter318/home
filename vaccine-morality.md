@@ -203,7 +203,9 @@ and to ask that their healthcare system make other types of vaccines available.
 >
 >1709 He who believes in Christ becomes a son of God. This filial adoption transforms him by giving him the ability to follow the example of Christ. It makes him capable of acting rightly and doing good. In union with his Savior, the disciple attains the perfection of charity which is holiness. Having matured in grace, the moral life blossoms into eternal life in the glory of heaven.   
 
-[Moral Conscience]()  
+>1730 God created man a rational being, conferring on him the dignity of a person who can initiate and control his own actions. "God willed that man should be 'left in the hand of his own counsel,' so that he might of his own accord seek his Creator and freely attain his full and blessed perfection by cleaving to him." Man is rational and therefore like God; he is created with free will and is master over his acts.  
+
+[Moral Conscience](http://www.scborromeo.org/ccc/p3s1c1a6.htm)  
 >1776 "Deep within his conscience man discovers a law which he has not laid upon himself but which he must obey. Its voice, ever calling him to love and to do what is good and to avoid evil, sounds in his heart at the right moment. . . . For man has in his heart a law inscribed by God. . . . His conscience is man's most secret core and his sanctuary. There he is alone with God whose voice echoes in his depths."
 >
 >1777 Moral conscience, present at the heart of the person, enjoins him at the appropriate moment to do good and to avoid evil. It also judges particular choices, approving those that are good and denouncing those that are evil. It bears witness to the authority of truth in reference to the supreme Good to which the human person is drawn, and it welcomes the commandments. When he listens to his conscience, the prudent man can hear God speaking.
