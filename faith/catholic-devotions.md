@@ -54,15 +54,16 @@
 |Jan 4   | St. Elizabeth Ann Seton
 |Jan 21  | St. Meinrad
 |Jan 28  | St. Thomas Aquinas
-|Mar 25    | St. Dismas
-|Apr 16    | St. Bernadette
-|Jun 22     | St. Thomas More
-|Jul 22     | St. Mary Magdalene
-|Jul 26     | Sts Joachim & Anne
-|Aug 9    | St. Edith Stein
-|Aug 13   | Father Michael McGivney
-|            | Sts Pontian, Pope, and Hippolytus, Priest, Martyrs
-|Aug 21   | St. Pius X
+|Mar 25  | St. Dismas
+|Apr 16  | St. Bernadette
+|Jun 22  | St. Thomas More
+|Jul 22  | St. Mary Magdalene
+|Jul 26  | Sts Joachim & Anne
+|Aug 9   | St. Edith Stein
+|Aug 13  | Father Michael McGivney
+|        | Sts Pontian, Pope, Martyr
+|        | Hippolytus, Priest, Martyr
+|Aug 21  | St. Pius X
 |Sep 5 | St. Teresa of Calcutta
 |Sep 21| St. Matthew
 |Sep 23| St. Padre Pio
