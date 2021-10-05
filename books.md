@@ -23,6 +23,9 @@ by Frances Frei
 
 Faith  
 ---
+[Debate On The Roman Catholic Religion](https://lccn.loc.gov/unk82000712)  
+by Alexander Campbell & Bishop John Purcell  
+
 [Catechism Of The Catholic Church]()  
 Green Edition  
 
