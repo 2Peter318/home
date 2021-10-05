@@ -23,25 +23,31 @@ by Frances Frei
 
 Faith  
 ---
-[Theology Of The Body]() 
-by Pope John Paul II  
-
 [Catechism Of The Catholic Church]() 
 Green Edition  
 
 [A Shorter Summa]() 
 by Peter Kreeft  
 
-[Catholic Guide to Miracles](https://www.sophiainstitute.com/products/item/the-catholic-guide-to-miracles) 
-by Eric Sammons
+[The Catholic Guide to Miracles](https://www.sophiainstitute.com/products/item/the-catholic-guide-to-miracles) 
+by Adam Blai
+
+[Vison of Fatima](https://www.sophiainstitute.com/products/item/vision-of-fatima)  
+by Fr. Thomas McGlynn  
+
+[Deadly Indifference](https://www.sophiainstitute.com/products/item/deadly-indifference)  
+by Eric Sammons  
+
+[Life of Christ](https://lccn.loc.gov/2008005297)  
+by Fulton J Sheen  
 
 Holy Family
 ---
-[Consecration to Saint Joseph](https://www.consecrationtostjoseph.org/) 
-by Donald Calloway  
-
 [33 Days to Morning Glory](https://www.shopmercy.org/33-days-to-morning-glory.html) 
 by Reverend Michael Gaitley  
+
+[Consecration to Saint Joseph](https://www.consecrationtostjoseph.org/) 
+by Donald Calloway  
    
 [The World's First Love](https://www.ignatius.com/The-Worlds-First-Love-2nd-edition-P2860.aspx) 
 by Archbishop Fulton Sheen  
@@ -54,24 +60,18 @@ Biographies
 [Mother Teresa](https://www.harpercollins.com/products/mother-teresa-revised-edition-kathryn-spink) 
 by Kathryn Spinx  
 
-[Billy Graham: Just As I Am]() 
-by 
+[Unbroken: A World War II Story of Survival, Resilience, and Redemption](https://lccn.loc.gov/2013497761)  
+by Laura Hillenbrand  
 
-[Paul Stanley Face The Music: A Life Exposed](https://lccn.loc.gov/2013037896) 
-by Paul Stanley
-
-[Unbroken: A World War II Story of Survival, Resilience, and Redemption](https://lccn.loc.gov/2013497761)
-by Laura Hillenbrand
-
-[Lone Survivor](https://lccn.loc.gov/2014655097)
-by Marcus Luttrell  
+[Lone Survivor](https://lccn.loc.gov/2014655097)  
+by Marcus Luttrell   
 
 Running 
 ---
-[Meb for Mortals](https://marathonmeb.com/product/autographed-meb-for-mortals/) 
+[Meb for Mortals](https://marathonmeb.com/product/autographed-meb-for-mortals/)  
 by Marathon Meb  
 
-[Running Until You're 100](https://www.biblio.com/9781841263090) 
+[Running Until You're 100](https://www.biblio.com/9781841263090)  
 by Jeff Calloway  
 
 Search  
