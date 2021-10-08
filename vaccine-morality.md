@@ -93,6 +93,11 @@ some anti-Covid-19 vaccines](https://www.vatican.va/roman_curia/congregations/cf
 >
 >In virtue of the Church’s doctrinal and pastoral mission, the Congregation for the Doctrine of the Faith has felt obliged to reiterate both the dignity and the fundamental and inalienable rights of every human being, including those in the initial stages of their existence, and to state explicitly the need for protection and respect which this dignity requires of everyone. The fulfillment of this duty implies courageous opposition to all those practices which result in grave and unjust discrimination against unborn human beings, who have the dignity of a person, created like others in the image of God. Behind every “no” in the difficult task of discerning between good and evil, there shines a great “yes” to the recognition of the dignity and inalienable value of every single and unique human being called into existence.
 
+[Casti Connubii On Christian Marriage Pope Pius XI - 1930](https://www.papalencyclicals.net/pius11/p11casti.htm)  
+>70. Public magistrates have no direct power over the bodies of their subjects; therefore, where no crime has taken place and there is no cause present for grave punishment, they can never directly harm, or tamper with the integrity of the body, either for the reasons of eugenics or for any other reason. St. Thomas teaches this when inquiring whether human judges for the sake of preventing future evils can inflict punishment, he admits that the power indeed exists as regards certain other forms of evil, but justly and properly denies it as regards the maiming of the body. “No one who is guiltless may be punished by a human tribunal either by flogging to death, or mutilation, or by beating.”[54]
+>
+>71. Furthermore, Christian doctrine establishes, and the light of human reason makes it most clear, that private individuals have no other power over the members of their bodies than that which pertains to their natural ends; and they are not free to destroy or mutilate their members, or in any other way render themselves unfit for their natural functions, except when no other provision can be made for the good of the whole body.
+
 [DV]:https://www.vatican.va/roman_curia/congregations/cfaith/documents/rc_con_cfaith_doc_19870222_respect-for-human-life_en.html  
 
 ### Publications  
