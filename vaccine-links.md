@@ -52,6 +52,9 @@ https://niacincurescovid.com/
 
 ## News & Opinion  
 
+Intel Does Not Require Vaccination for Employees (13-Oct-2021)
+https://alexberenson.substack.com/p/guess-which-fortune-50-company-wont/comments
+
 Trafalgar Poll: Biden Vaccine Mandate Unconstitutional, Majority Says  
 https://www.newsmax.com/us/vaccination-mandate-unlawful-poll/2021/09/13/id/1036199/  
 https://thetrafalgargroup.org/COSA-National-BidenVaccines-Full-Report.pdf  
@@ -476,6 +479,4 @@ https://covid19.healthdata.org/united-states-of-america/
 CDC Provisional Death Data (2020-2021)    
 https://data.cdc.gov/NCHS/Weekly-Provisional-Counts-of-Deaths-by-State-and-S/muzy-jte6  
 
-CDC Provisional Death Data Monthly (2019-2021)  
-https://data.cdc.gov/NCHS/AH-Monthly-Provisional-Counts-of-Deaths-by-Age-Gro/ezfr-g6hf  
-
+CDC Provisional Death Data 
